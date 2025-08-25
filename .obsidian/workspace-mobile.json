@@ -13,12 +13,12 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Journal/August 24 2025.md",
+                "file": "Journal/August 25 2025.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "August 24 2025"
+              "title": "August 25 2025"
             }
           }
         ]
@@ -164,9 +164,10 @@
   },
   "active": "20085a94df8ae38d",
   "lastOpenFiles": [
+    "Journal/August 24 2025.md",
+    "Journal/August 25 2025.md",
     "/Journal/August 24 2025.md",
     "/Journal",
-    "Journal/August 24 2025.md",
     "Journal/August 23 2025.md",
     "Journal/August 22 2025.md",
     "Journal/August 21 2025.md",
@@ -191,7 +192,6 @@
     "/August 21 2025.md",
     "/August 20 2025.md",
     "/August 19 2025.md",
-    "/August 18 2025.md",
-    "August 20 2025.md"
+    "/August 18 2025.md"
   ]
 }

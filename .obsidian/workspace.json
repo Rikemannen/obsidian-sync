@@ -4,21 +4,17 @@
     "type": "split",
     "children": [
       {
-        "id": "9d6cd6eca2a5732d",
+        "id": "ef54d71e827acfcc",
         "type": "tabs",
         "children": [
           {
-            "id": "6bde3efdeefb6671",
+            "id": "1aa90a54124810b3",
             "type": "leaf",
             "state": {
-              "type": "markdown",
-              "state": {
-                "file": "Journal/August 25 2025.md",
-                "mode": "source",
-                "source": false
-              },
+              "type": "empty",
+              "state": {},
               "icon": "lucide-file",
-              "title": "August 25 2025"
+              "title": "New tab"
             }
           }
         ]
@@ -78,8 +74,7 @@
       }
     ],
     "direction": "horizontal",
-    "width": 300,
-    "collapsed": true
+    "width": 300
   },
   "right": {
     "id": "2afc77904b5d4a33",
@@ -180,10 +175,13 @@
       "obsidian-git:Open Git source control": false
     }
   },
-  "active": "6bde3efdeefb6671",
+  "active": "6446c5dc66a52172",
   "lastOpenFiles": [
+    "Untitled.base",
+    "Untitled 1.base",
     "Att göra hemma.md",
     "Journal/August 25 2025.md",
+    "Journal/August 26 2025.md",
     "Furry stuff/Fursona making!!.md",
     "Furry stuff/Fursuit making!!!.md",
     "Journal/August 24 2025.md",
@@ -208,8 +206,6 @@
     "August 17 2025.md",
     "August 16 2025.md",
     "August 14 2025.md",
-    "August 12 2025.md",
-    "August 10 2025.md",
     "home/rik/Documents/Obsidian Vault",
     "home/rik/Documents",
     "home/rik",

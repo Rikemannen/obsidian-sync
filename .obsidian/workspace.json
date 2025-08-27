@@ -4,17 +4,21 @@
     "type": "split",
     "children": [
       {
-        "id": "ef54d71e827acfcc",
+        "id": "50ffe2305670d376",
         "type": "tabs",
         "children": [
           {
-            "id": "1aa90a54124810b3",
+            "id": "4116af1315b8d6e3",
             "type": "leaf",
             "state": {
-              "type": "empty",
-              "state": {},
+              "type": "markdown",
+              "state": {
+                "file": "Journal/August 26 2025.md",
+                "mode": "source",
+                "source": false
+              },
               "icon": "lucide-file",
-              "title": "New tab"
+              "title": "August 26 2025"
             }
           }
         ]
@@ -74,7 +78,8 @@
       }
     ],
     "direction": "horizontal",
-    "width": 300
+    "width": 300,
+    "collapsed": true
   },
   "right": {
     "id": "2afc77904b5d4a33",
@@ -175,14 +180,15 @@
       "obsidian-git:Open Git source control": false
     }
   },
-  "active": "6446c5dc66a52172",
+  "active": "79f7d127b12210c6",
   "lastOpenFiles": [
-    "Untitled.base",
-    "Untitled 1.base",
-    "Att göra hemma.md",
-    "Journal/August 25 2025.md",
+    "Journal/August 27 2025.md",
     "Journal/August 26 2025.md",
     "Furry stuff/Fursona making!!.md",
+    "Untitled 1.base",
+    "Untitled.base",
+    "Att göra hemma.md",
+    "Journal/August 25 2025.md",
     "Furry stuff/Fursuit making!!!.md",
     "Journal/August 24 2025.md",
     "Journal/August 23 2025.md",

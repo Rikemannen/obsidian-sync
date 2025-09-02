@@ -30,4 +30,6 @@ One last thing, well two, but i kinda forgot one, we had tacos in school for lun
 
 Also a reflection, if i had continued journalling like i tried it at the start with that ugly ass template, i wouldve stopped doing it for sure.
 
+Two MORE things, both in German class, 1, i let Nils lend my watch, idk why that was worth writing down but whatever. And 2, the computer that ignas got last week, yea he cracked the monitor, and the school wonders why they dont have much money? God just force him to pay some sum for it, it isnt the first time. Sure, laptops that cheap arent made to last very long, but thats kinda on him (even if he says someone else did it)
+
 Idk if theres more, if so i wont write it today. Maybe add on to here tomorrow if i feel like it.

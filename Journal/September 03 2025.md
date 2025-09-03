@@ -4,4 +4,9 @@ God its actually late rn so i wont write much, im trying to get my laptop workin
 
 Nothing much happened today anyways, we watched a movie in English class, i forgot the name, will write tmrw. My physics teacher said that he was just yesterday and couldnt do the thing, thank god.
 
+Add: one thing i did realize today was that ive "been" drawing the wrong kind of furries, i want to draw toony furries like ivycomb, ni realistic/half realistic ones.
+
 Going to fix this damned laptop, and then sleep, now.
+
+Update, manjaro wont mount the efi partition either, gonna have to either fix tomorrow or use arch, i dont really mind tho.
+Also im hungry af.

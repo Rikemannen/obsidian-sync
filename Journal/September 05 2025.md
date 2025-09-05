@@ -8,4 +8,5 @@ Firstly, during swedish class i was really bored. So i tried to see my phone wit
 
 During english class we had hw, i tried to learn all of it and well i *did*, but i just got half of it all. The other ones were past present whatever tense of some words, i got 3 wrong (one line with the same word, i got the wrong word since it didnt say word in english). We then watched the truman show again and its **soo** good bro. Well mission impossible is better yadda yadda but its a good movie (god i need to rewatch m.i.), i really wanna watch movies rn lol. There is also a song that i got stuck in my head for a day, its called "philip glass - anthem, part 2".
 
-We ate chicken for lunch and now im gonna bake brownies :D (guess who i sat with at lunch! (idk why this is so cool bro, i guess cuz i have guaranteed non-homophobe friends, who knows)
+We ate chicken for lunch (guess who i sat with at lunch! (idk why this is so cool bro, i guess cuz i have guaranteed non-homophobe friends, who knows)
+Ima bake brownies tomorrow, i cant be arsed rn, im so lazy omg.

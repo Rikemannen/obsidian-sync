@@ -9,7 +9,7 @@ At home we had to clean the house. And i did some mayor fuckups. When nobody was
 
 Anyways after cleaning was done (done=i didnt have to do anything else) i played naval warfare, this time with pc+main and laptop+alt, to control a ship and a plane for the ship. I played with yahya (idk if i mentioned them?) and some other awesome people. But there were some guys who took the big ships when we got killed and drove them the wrong way/out of the map.
 
-After a while we had guests over, our "neighbours", two random people and my brother's friend (theyre going golfing tomorrow with him, he is sleeping over. Now that i think about it, i havent had a sleepover with anyone for years. God im so lonely. I dont *like* it, i *tolerate* it. Nah i just *live* with it.
+After a while we had guests over, our "neighbours", two random people and my brother's friend (theyre going golfing tomorrow with him, he is sleeping over. Now that i think about it, i havent had a sleepover with anyone for years. God im so lonely. I dont *like* it, i *tolerate* it. Nah i just *live* with it. I also let the other guy who was here play on my computer, i think he liked it, computer means laptop btw. The other guy sleeping over had his Xbox...
 
 We ate fried chicken for dinner, and some chocolate cake for dessert. I loved the chicken but not the cake. I dont like cake. It was chocolate cake thing that i bake sometimes, with some chocolate spread and chocolate shards (?) and some milk chocolate things. Basically just chocolate. (i got hamburger for lunch btw)
 

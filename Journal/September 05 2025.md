@@ -27,3 +27,6 @@ Another thing in school was that i connected to my pi via tunnel (idk why i ment
 I also thought about getting hollow knight (the new one), but it doesnt feel like something for me, but i still want to get it for some reason, even though i dont really believe ill like it. Idk man.
 
 Anyways i have nothing planned for tomorrow so i guess ill bake or cry or do nothing idk. Im gonna sleep like crazy rn. Also idk if i might start writing down what my dreams are based on, since ive noticed in the past, most, if not all, of them are based of off 2 things that happened that day/week/whatever. Im still not gonna write down the weird things tho (But i havent had any for a while, i cant really remember when i did... :D?)
+
+Also, just adding rq, firstly the book we are reading as Swedish thing is really good rn, the main character has revealed to their friend that they switch body every day etc. etc.
+Secondly, during English, tpntm (the person next to me) told me she blogged on the school pc sometimes?? And i said i could barely journal cuz it was so embarrassing fsr. I dont think she understood tho.

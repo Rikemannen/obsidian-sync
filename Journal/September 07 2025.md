@@ -1,0 +1,1 @@
+I was going around in a van or bus or whatever, and we had to find food before a storm came, and eat before it was there. After it has come we got out in a new place and repeat. It sounds weird but there was some "structure".

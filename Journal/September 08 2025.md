@@ -1,0 +1,19 @@
+Bro wtf i pulled from GitHub and my entry just got fucking erased bro what the hell. Omg i really hope i pulled on my laptop, but i prolly did, but for now ill just continue without dreams:
+
+Update: obsidian made a snapshot:
+I dreamt that i was fixing a lot of stuff at night lake taking put vehicles and stuff in the middle of th night. After that i was building train tracks with a bunch of people and i was checking if i needed to put gravel and let it sot before using the track... I was then riding a cargo ship till another country. There were a lot of other ones aswell (not a part of the snapshot, but idrk if this was cutoff or i forgot a dot, nothing past this was part of snapshot), i also remember being in a car and pulling the hand brake. But the car started rolling, so i pulled it the other way (it was like a lever moving 45° each direction from a center), but the car started rolling the other way. The lever also had a knife with blood, kind of like a sketch illustration on one side, literally just a knife with a drop of blood, and a clean one on the other side, idk man..
+
+Im starting to hate journalling at night, and for good reasons. Anyways uhh in school we had music. I got bored when we were playing freely and made some bangers with the music thing on the piano. I was also really good when we did the ensemble thing.
+
+I kinda forgot about everything...
+
+I made brownies today!! They turned out really good. Holy shit i love them. I ate ⅖ of them all and then put the rest in the fridge for tomorrow.
+
+Ive also been really thinking about gender stuff lately. I kinda dont know what i am anymore... Well ill make a small correction for the record, im not really gay, im more so bi/pan with a preference for guys. But then, i have no idea what i want to identify as. I do know i want fem clothes. But am i m or f or nb or shrimp or what.
+
+I got response from the cardboard company, they dont want any of us there... My dad was gonna drive and get onions and check out field were Grandpa was (he was done) plowing, and i came with and we went to the guy who owns the hill where ill one day lay in the grass with my bf either checking the view or stargazing, who knows. One day... (I got 3 mini heart attacks writing this 😭), anyways we asked him if i could be with them, and he said yes, but they might also have another guy at the same time from another school (what are the chances :3c)
+
+After lunch today (pasta with bacon sauce thing, it tasted 10x worse than last year) i went to the library to reloan my books, as to not get a letter home with the book names and my parents checking what the books are about. And i couldnt do it on one book, guess which one... So now im gonna have to smuggle it back and return it. The librarian said the books can be loaded for 4 weeks, i didnt check when the book had to be returned, and so im kinda, pretty, sure they have sent the letter and its just waiting to come, ima check the post every day now, but my fantastic luck will probably make my parents get it before me. WELL THEY SHOULDNT BE OPENING MY MAIL!! But i know they will, unless they learnt from snooping around my room. Idrc what they see anymore. But itd be nice to tell them myself.
+I do wonder tho, should i tell them the simple answer or the complicated one? Either way theyll be shocked. But i dont think theyre gonna be vad about it. My dream is literally to go shopping with my mom in such clothing where everyone thinks its a mom shopping with her daughter. Or heck, a guy shopping with his girlfriend. I dont really have any clothes i want rn. I mean my thigh highs are *fairly* comfy, but thats it, i want the ones from angypaws, as soon as the email comes that the thick ones are restocked, theyre being shipped to Sweden. Along with arm warmers and maybe more stuff.
+
+I dont know what else to write, ill try to journal mid day tmrw. Gonna sleep now!!

@@ -4,21 +4,21 @@
     "type": "split",
     "children": [
       {
-        "id": "c2936b936397958e",
+        "id": "f32231406221ad49",
         "type": "tabs",
         "children": [
           {
-            "id": "4e162b6492277e4f",
+            "id": "04729794cd7a4e57",
             "type": "leaf",
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Journal/September 07 2025.md",
+                "file": "Journal/September 09 2025.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "September 07 2025"
+              "title": "September 09 2025"
             }
           }
         ]
@@ -53,7 +53,7 @@
             "state": {
               "type": "search",
               "state": {
-                "query": "",
+                "query": "mil",
                 "matchingCase": false,
                 "explainSearch": false,
                 "collapseAll": false,
@@ -74,7 +74,8 @@
               "title": "Bookmarks"
             }
           }
-        ]
+        ],
+        "currentTab": 1
       }
     ],
     "direction": "horizontal",
@@ -179,10 +180,16 @@
       "obsidian-git:Open Git source control": false
     }
   },
-  "active": "4e162b6492277e4f",
+  "active": "04729794cd7a4e57",
   "lastOpenFiles": [
-    "Journal/September 06 2025.md",
+    "Untitled.base",
+    "Journal/September 09 2025.md",
+    "Journal/August 30 2025.md",
+    "Journal/September 02 2025.md",
+    "Journal/September 01 2025.md",
+    "Journal/September 08 2025.md",
     "Journal/September 07 2025.md",
+    "Journal/September 06 2025.md",
     "Journal/September 05 2025.md",
     "Journal/August 10-12 2025.md",
     "Journal/August 12 2025.md",
@@ -201,14 +208,7 @@
     "Journal/August 20 2025.md",
     "Journal/August 21 2025.md",
     "Journal/August 22 2025.md",
-    "Journal/August 23 2025.md",
-    "Journal/August 24 2025.md",
-    "Journal/August 31 2025.md",
-    "Journal/August 30 2025.md",
-    "Journal/August 29 2025.md",
-    "Journal/September 01 2025.md",
     "Untitled 1.base",
-    "Untitled.base",
     "Furry stuff",
     "Journal",
     "home/rik/Documents/Obsidian Vault",

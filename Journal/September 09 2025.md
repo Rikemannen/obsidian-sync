@@ -1,0 +1,1 @@
+I remember about shopping stuff with trucks, but nothing more.

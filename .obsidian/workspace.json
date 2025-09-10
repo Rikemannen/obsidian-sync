@@ -4,17 +4,21 @@
     "type": "split",
     "children": [
       {
-        "id": "7128b33c26852eef",
+        "id": "da34eea4f800e5e3",
         "type": "tabs",
         "children": [
           {
-            "id": "b4b16de0bd65a13d",
+            "id": "57cd5aaf95aded12",
             "type": "leaf",
             "state": {
-              "type": "empty",
-              "state": {},
+              "type": "markdown",
+              "state": {
+                "file": "Journal/September 10 2025.md",
+                "mode": "source",
+                "source": false
+              },
               "icon": "lucide-file",
-              "title": "New tab"
+              "title": "September 10 2025"
             }
           }
         ]
@@ -74,7 +78,8 @@
       }
     ],
     "direction": "horizontal",
-    "width": 300
+    "width": 300,
+    "collapsed": true
   },
   "right": {
     "id": "2afc77904b5d4a33",
@@ -175,8 +180,11 @@
       "obsidian-git:Open Git source control": false
     }
   },
-  "active": "79f7d127b12210c6",
+  "active": "57cd5aaf95aded12",
   "lastOpenFiles": [
+    "Journal/September 10 2025.md",
+    "Journal/September 09 2025.md",
+    "Journal/September 08 2025.md",
     "Untitled.base",
     "Untitled 11.base",
     "Untitled 10.base",
@@ -185,12 +193,8 @@
     "Untitled 7.base",
     "Untitled 6.base",
     "Untitled 5.base",
-    "Journal/September 08 2025.md",
     "Untitled 4.base",
-    "Journal/September 09 2025.md",
     "Untitled 3.base",
-    "Untitled 2.base",
-    "Journal/September 10 2025.md",
     "Journal/August 30 2025.md",
     "Journal/September 02 2025.md",
     "Journal/September 01 2025.md",

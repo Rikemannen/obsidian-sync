@@ -27,4 +27,6 @@ My genious ass also sent two links in the mail, one with the cloudflare one that
 
 Ive also been thinking about coming out a bit more, my mom said she was gonna give a syrringe to a cow (or whatever you say idk) and asked if i wanted to come, i thought about telling her about myself during that (of course i said yes to come, but we never went, she will go another day, idk if i can come, and i probably wont come out, ima wait until i get a bf, i gotta go out more!!!)
 
+I cant help that i also feel jealous about everyone just like my who has come out and gotten what they want, i keep reassuring myself that i will get a boyfriend, i will get a skirt & hoodie. But deep down i also feel like i wont... Itll work out in the end tho ;D
+
 Anyways im gonna sleep now. I remember when i thought about writing a diary, but then thinking it was too late. Well here i am (even though i dont call this a diary, its a JOURNAL, but whats the difference)

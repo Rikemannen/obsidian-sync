@@ -21,4 +21,4 @@ Idk what else to write, i afked in islands today, i got like 148 cry iron.
 
 Ive also been feeling body dysmorphia today, about my voice and whatnot. but also euphoria?????? Does this mean i am enby??
 
-Anyways ima do more pi stuff and then sleep. Until we meet again.
+Anyways ima do more pi stuff and then sleep. Until we meet again. Nvm im too tired...

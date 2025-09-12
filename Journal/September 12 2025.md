@@ -18,6 +18,6 @@ Before english class started there were a couple of guys in 9th grade who sat at
 
 I also wanna say that during english class we had hw, it was *"orally 🤨*" (wtf why is the emoji italic *🦂*, best emoji ever), i always think the exact same thing when she says that, it was really easy. We then did some talking to eachother. And the other guys just had to be annoying as fuck. The guy behind me brought a flipping flip phone he found at home. It waas actually pretty funny and i did laugh once, but the teacher caught me (ofc, its a serious crime) and i felt pretty bad (i always do). But that doesnt, by any means, revoke my right to say that its annoying.
 
-Ill also add here that i am now thinking a lot about guys, i am getting gayer every day.
+Ill also add here that i am now thinking a lot about guys, i am getting gayer every day. Well not only that, ive also been thinking about getting the clothes i want, and ofc coming out. I mean everyone in my family will most likely be accepting. Heck, they might already know, my mom has seen some things...
 
 I wanna sleep.

@@ -20,4 +20,4 @@ I also wanna say that during english class we had hw, it was *"orally 🤨*" (wt
 
 Ill also add here that i am now thinking a lot about guys, i am getting gayer every day.
 
-I wanna sleep.
+I wanna sleep now. (That sounds so cryptic)

@@ -1,3 +1,5 @@
+I dreamt about counting pi at home and in class, surprised? I also helped some other person people remove grass on a field??
+
 I forgot to push dream stuff, oh well.
 I have swedish class in like 5 min, im sitting in the classroom rn, it is calm af in here lol.
 Ive had german, we had hw but i knew most of them, and besides it was on the board today. But the teacher said something that made me react. That the words arent graded based on if we know them or not, except they are graded in the way where he checks our tests later and sees if we include them or not. I *might* have to get better at doing my hw...

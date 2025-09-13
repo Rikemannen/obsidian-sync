@@ -6,3 +6,13 @@ We then went and watched a (boring, but still interesting or smth) movie. And th
 Well i literally havent done anything other than that, but i am printing a chain puzzle thing for him of bulbasaur (he loves pokemon).
 
 Well now while i was just sitting here doing nothing the people i "was with" on the bus yesterday ([[September 12 2025]]) called and said goodnight? Well ofc im thinking why?? I will for sure ask them when we come back to school.
+
+Holy shit this is gonna be a bad night. I have to wake up at 00:10 (in 35 min) to get one batch off of the printer. Then two hours after that (~02:00), then 1 hour, 57 min, 48 min and lastly 45 min in a chain, if we say cleaning each plate takes 10-15 min thats about an hour of doing that. Final times are:
+00:10-00:25
+02:15-02:30
+03:20-03:30
+04:00-04:10
+04:45-04:55
+05:30-05:40
+
+Cleaning times are approximate, i loose about 20-15 min per time, 6 times thats about 1.5 hours of sleep lost. We wake up after 8 tho, dont know when exactly. I probably wont sleep before first one, so from ~00:30 → ~09:00 - 1.5 hours is ~7 hours of sleep. Ive gotten worse tho... Ima scroll reddit now when waiting for first one.

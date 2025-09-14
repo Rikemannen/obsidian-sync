@@ -30,3 +30,7 @@ On the topic of names, why not? [[Trans names (if thats what i want)]].
 Well i have now created [[Fuck it, journal²]]. I can write about what i feel like each day sexuality wise, i made an entry for today. Meanwhile [[Fursona making!!]] And its friend are just collecting dust. I will also check to see if there is a plugin to allow me to create a daily journal entry in that journal along with the regular one.
 
 Anyways i dont want anyone but people i trust arent homophobic to read ANY of this journal/Vault/whatever. The repo must stay private.
+
+Holy what an entry, i finished reading the "news"paper i got a while ago, and the guy i was with on that camp with cows was in it :O He talked about how it was doing what we did there (well he kinda briefly mentioned that more so talking about the thing in general and his experience with his animal but whatever), my mom thinks i should tell him i read about him. And well, i will cuz thats cool af. I might actually go back there next year just cuz ~~ive got no friends~~ it was fun the two times i was there.
+
+While writing that i got an auto correct suggestion for timeshift, which i really do need to set up.

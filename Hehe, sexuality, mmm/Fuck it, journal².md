@@ -8,3 +8,4 @@ I also wanna add, when coming out i can say this:
 - I dont quite know what i identify as, but i dont mind people calling me a guy, i can also say that i feel a little different each day (genderfluid), but not enough for people to change their behavior around me. NO, you know what it should be short:
 - i am unsure what to be referred as, but dont mind it as it is.
 - I would love of people just know this about me, without feeling the need to change their behaviour around me.
+- BONUS: tell them about my journal and/or being a furry if i want to.

@@ -20,4 +20,4 @@ I also wanna say that during english class we had hw, it was *"orally 🤨*" (wt
 
 Ill also add here that i am now thinking a lot about guys, i am getting gayer every day. Well not only that, ive also been thinking about getting the clothes i want, and ofc coming out. I mean everyone in my family will most likely be accepting. Heck, they might already know, my mom has seen some things...
 
-I wanna sleep now. (That sounds so cryptic)
+I wanna sleep.

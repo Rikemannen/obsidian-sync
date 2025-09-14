@@ -17,3 +17,5 @@ Holy shit this is gonna be a bad night. I have to wake up at 00:10 (in 35 min) t
 
 Cleaning times are approximate, i loose about 20-15 min per time, 6 times thats about 1.5 hours of sleep lost. We wake up after 8 tho, dont know when exactly. I probably wont sleep before first one, so from ~00:30 → ~09:00 - 1.5 hours is ~7 hours of sleep. Ive gotten worse tho... Ima scroll reddit now when waiting for first one.
 I also gotta remember to restart the printer since it did complain about accelerometer or smth. And i really hope nothing fails. Dreaming?? thats for noobs.
+
+Update, time is 03:30, i fell asleep and didnt change, and i just dont want to do all this rn, ill probably just post the parts.

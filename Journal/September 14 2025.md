@@ -50,4 +50,4 @@ So what i will do (most likely):
 
 Btw, [[August 25 2025]] isnt the biggest entry anymore, this is, with around 1600 WORDS!!! Also i browsed looking for the entry, and i found [[August 23 2025]], in the end i say i realised that i am a furry. I thought this entry was later tho, atleast after the long one, well its close but sure.
 
-Anyways its been a crazy day with crazy events, well not really but im tired. God i cant wait for tmrw, i hope i dont forget any stuff tho... Now im also getting this well known feeling for me of being unsure, is it really the correct day or an i dumb? Maybe ive gotten it wrong, anyways ima wake early tmrw (try to).
+Anyways its been a crazy day with crazy events, well not really but im tired. God i cant wait for tmrw, i hope i dont forget any stuff tho... Now im also getting this well known feeling for me of being unsure, is it really the correct day or an i dumb? Maybe ive gotten it wrong, anyways ima wake early tmrw (try to). Im gonna sleep now.

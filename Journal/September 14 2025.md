@@ -9,3 +9,14 @@ Im starting to think more about getting clothes and stuff rn. I will buy the soc
 2. Come out to my mom and same but with her
 I do want to wait with coming out to my family until ive gotten a bf or *atleast* know half certainly what i am, rn i cant quite *put my finger on it (laughs as old timer).*
 I might actually do it next week, or maybe wait until ive gotten thigh highs? I also want a hoodie btw. This is so confusing and annoying, but yet... so fun. I cant wait! Well i *can*, thats kinda why i havent done it yet. God this sucks.
+
+Well ive been playing mostly ragdoll universe right now, occasionally going downstairs and getting the printer ready for another batch. One game i played there was a guy that had like lvl 800, he seemed nice, and was really good. And i see this as a bit of a challenge to try and kill this guy. Of course i dont just go for him (target). And when i finally kill him i go "yay" and he goes full on angry. After the game he tells me to get better or something before targeting him. And im just like "im just getting stuff and you come so i shoot" and "apologizing" for annoying him. Then he said "i know what im talking about", i said sure you do and (tried to say) "i guess im just a dumbass" but ofc it got tagged. And so i came with the comeback of the year "cant even insult myself in this day and age".
+Oh and also there was some guy named "greenboy10b", and my cousins name in roblox is w_greenboy? Ofc its not **the** person, but a coincidence.
+
+Im also kinda tired rn (20:30) and ill go to sleep now.
+
+Shit to do sometime:
+Come out (Idk why i wont do it, i did have a perfect moment to with my mom today, but i didnt, i mean itd be obvious in the entry if i did lol)
+Get thigh highs & arm warmers (i felt cold today and thats why i want it, ive been wearing thight highs the whole day and im not cold at all on my feet, well a lil but whatever.)
+Shave my legs (completely, no hair, i *can*, but im scared of people knowing, i might just do it and keep myself in private yk, i mean who th looks at them at home anyways. Its just that itll probably smell like ass, but ill manage.)
+Well get clothes in general, socks, arm warmers, skirt, (actaully) comfy hoodie (hoodies i have are like syntetic or smth idk, i dont like em. i want cotton or smth)

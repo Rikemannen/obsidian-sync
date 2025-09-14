@@ -19,3 +19,4 @@ Cleaning times are approximate, i loose about 20-15 min per time, 6 times thats 
 I also gotta remember to restart the printer since it did complain about accelerometer or smth. And i really hope nothing fails. Dreaming?? thats for noobs.
 
 Update, time is 03:30, i fell asleep and didnt change, and i just dont want to do all this rn, ill probably just post the parts.
+For the record i did sneak down to do it, but went back up, it takes too much time and too much power to remove the parts etc.

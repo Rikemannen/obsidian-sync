@@ -34,3 +34,20 @@ Anyways i dont want anyone but people i trust arent homophobic to read ANY of th
 Holy what an entry, i finished reading the "news"paper i got a while ago, and the guy i was with on that camp with cows was in it :O He talked about how it was doing what we did there (well he kinda briefly mentioned that more so talking about the thing in general and his experience with his animal but whatever), my mom thinks i should tell him i read about him. And well, i will cuz thats cool af. I might actually go back there next year just cuz ~~ive got no friends~~ it was fun the two times i was there.
 
 While writing that i got an auto correct suggestion for timeshift, which i really do need to set up.
+
+Uhh idk if i mentioned we are going to go orinentating (what the HELL do you call it 😭). And im 100% certain that im coming out to my closest friends (the girls i keep talking about, no guys holy shit they suck). I also really wanna make some friends, but i feel like i hate everyone in my school. But but but... There is one thing i hate more than any person in my school atleast, not the world... SOCIAL ANXIETY 😫. I feel like its so fake for me.. UNTIL i go out in public, sometimes im fine talking to people, and sometimes it sucks. Im thinking that when i have to ask questions, thats when i get real stressed. Let me give an example of something that generally fucks with me. [[September 13 2025]] we had people at our cows yk, and i was saying hi to them, two kids didnt notice me with my hand out, one parent was busy tying his kids shoes, and to top it all off, when i greeted the last person I LITERALLY SAID HER NAME NOT MINE!! I did correct myself fast enough for her to think she echoed or smth 😭 but that SUCKS.
+
+Anyways to sum it all up, Axel is cool, pancakes at the pancake place taste like paste (idk if i mentioned it, the American pancakes tasted like cold paste 🤢 Atleast the bacon was good, still either brittle like glass or cold like my toes constantly (Why is that?), i hate social anxiety, my hair is too short, im cute asf (when i feel like what i look like, holy shit i am genderfluid or smth), i hate negative people AND homophobes (duhh), i want to be a femboy for real.
+
+So what i will do (most likely):
+1. Come out to my friends, probably happens tmrw (i am actually going to say the truth, i want to dress fem, i like boys, and i feel uncertain what i identify as, ALONG WITH BEING A FURRY, but i might leave that out, holy shit they may not even accept me, this can turn into a shit show really quickly, someone may even listen to me!!)
+2. Get one of them to shop for fem clothes with me (how tf will i pull just **that** off?)
+3. Get comfier thigh highs + arm warmers (how can something be comfier?)
+4. (Or 3 idk) Shave/remove hair idc how.
+(Rest of this will happen a long time after, or maybe not idk, may also include getting thigh highs)
+5. Get a feminine haircut, no "make bs" we going *cute* not *cool*.
+6. Come out to my family... (Well only if i really feel the need to, and besides, what do i say?)
+
+Btw, [[August 25 2025]] isnt the biggest entry anymore, this is, with around 1600 WORDS!!! Also i browsed looking for the entry, and i found [[August 23 2025]], in the end i say i realised that i am a furry. I thought this entry was later tho, atleast after the long one, well its close but sure.
+
+Anyways its been a crazy day with crazy events, well not really but im tired. God i cant wait for tmrw, i hope i dont forget any stuff tho... Now im also getting this well known feeling for me of being unsure, is it really the correct day or an i dumb? Maybe ive gotten it wrong, anyways ima wake early tmrw (try to).

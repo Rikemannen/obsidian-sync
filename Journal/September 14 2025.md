@@ -20,3 +20,13 @@ Come out (Idk why i wont do it, i did have a perfect moment to with my mom today
 Get thigh highs & arm warmers (i felt cold today and thats why i want it, ive been wearing thight highs the whole day and im not cold at all on my feet, well a lil but whatever.)
 Shave my legs (completely, no hair, i *can*, but im scared of people knowing, i might just do it and keep myself in private yk, i mean who th looks at them at home anyways. Its just that itll probably smell like ass, but ill manage.)
 Well get clothes in general, socks, arm warmers, skirt, (actaully) comfy hoodie (hoodies i have are like syntetic or smth idk, i dont like em. i want cotton or smth)
+
+Some more things:
+This was the first time i wrote down my dream on a device other than my phone (laptop)
+
+Ive also researched a tiny bit, and done some m~~e~~ath, i want my hair to grow 7cm more, and the time for that to grow is around 132 days, why so specific you ask? Well... thats my bday!! And while were at it, this is the first time ive mentioned my bday and Femmy, god i need a new one, i want 1m shark for christmas (Ah, first time mentioning christmas (ill stop). Ill name him Niko :3
+
+On the topic of names, why not? [[Trans names (if thats what i want)]].
+Well i have now created [[Fuck it, journal²]]. I can write about what i feel like each day sexuality wise, i made an entry for today. Meanwhile [[Fursona making!!]] And its friend are just collecting dust. I will also check to see if there is a plugin to allow me to create a daily journal entry in that journal along with the regular one.
+
+Anyways i dont want anyone but people i trust arent homophobic to read ANY of this journal/Vault/whatever. The repo must stay private.

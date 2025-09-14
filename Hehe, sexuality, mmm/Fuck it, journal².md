@@ -1,0 +1,3 @@
+This is my journal within this subject, cuz y not:
+# 14 sep
+I felt mixed stuff today, i want to be a femboy, but at the same time i literally created [[Trans names (if thats what i want)]]. One thing is for certain i *preferably* want a boyfriend.

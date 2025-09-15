@@ -3,6 +3,7 @@ I knew what i dreamt about but my lazy ass didnt write it down.
 Quick journal before i fall asleep:
 When we were away with school i took the medium difficulty map, took me 55 min. I ate one hamburger and some snacks that i brought. I then walked an easy round with my two friends ;)
 I was thinking of telling them, but i ended up not doing it, it wasnt a good time, besides it doesnt really matter rn. I did however say one thing. I had gotten something weird in my eye were i had like a line or something that was blurry, and i told them that i was going to take, among others, a vision test to make sure i was fit to drive slow cars. And then she asked if i was gonna become a guy who blasts loud music etc in their car to impress people (its a general term but you get it), and i responded with "there arent any cute guys in school anyways, so it doesnt matter", she (i wasnt talking to both, Veronica had gone before us since we got the same map she got 30 minutes before, oh and me and Niva got the same maps we got last year lol) didnt say anything. If she had said something, thats when i wouldve come out, i think thats also the best way.
+I also wore my hoodie (the one without strings) there today, it was nice but its not quite what i want. I want an oversized one, i might even like a crop top... I want something comfy brah.
 
 I also got a response from the people who called me [[September 14 2025]], they had called multiple people, some got mad cuz they were woken up, and others werent going to sleep for a while (mee!).
 

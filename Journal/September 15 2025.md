@@ -15,3 +15,5 @@ Oh and on the bus home the guys in my class started getting mad at eachother. It
 
 Anyways fuck annoying people and those who destroy stuff, i will try to gain courage to come out this week, and tomorrow is my one month anniversary of journalling 🥳
 Im tired and going to sleep.
+
+Also quick note, ive had a mild headache ever since lunch today, i gotta drink more...

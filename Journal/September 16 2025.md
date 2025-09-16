@@ -12,7 +12,7 @@ Also happy anniversary to me!!! [[August 16 2025]] was my first "real" journal e
 Anyways what did i **do** today?
 I played game.
 Im gonna sleep now.
-jk uhh i also went to my mom at the cows place and ate hamburger there. I was annoying af while there. But on the way home i got a lot of time to think. And of course i thought about... well guess, i wont write it. I have now realised a little more that, well idk what i identify as, nor who i like. BUT thats just for labels, so far i know that you will have to read [[Fuck it, journal²#^1dd842]] because i am EVIL MUHAHAHA.
+jk uhh i also went to my mom at the cows place and ate hamburger there. We also refueled the portable diesel pump, it cost like 3.4k and was 210l. I was annoying af while there. But on the way home i got a lot of time to think. And of course i thought about... well guess, i wont write it. I have now realised a little more that, well idk what i identify as, nor who i like. BUT thats just for labels, so far i know that you will have to read [[Fuck it, journal²#^1dd842]] because i am EVIL MUHAHAHA.
 
 I played some burger game today, it was real fun, its a better copy of cook burgers. But its a cashgrab :(
 I also played generic cooking game, which is a copy of cooking sim on steam. And restaurant tycoon 3 (idk if i mentioned but its out of beta/alpha!!) I found some really good looking restaurants from other people, and i took shitloads of screenshots. But im still poor. First one was castle, owner had like 400k and 60k in tips, second was a kebab restaurant and owner had like 40k with 6k tips. I love the kebab one it was so good.

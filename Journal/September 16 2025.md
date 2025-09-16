@@ -31,3 +31,5 @@ I have most likely forgotten something like i have multiple times, and will reme
 
 Well i just staged, committed and pushed that, and shutdown my laptop, and now i write this on my phone:
 I also got a similar theme on my pc like my laptop, like i have wanted to do for a little while now. I also probably forgot to mention that i can not use timeshift fsr, it just says it is "finished" when i click create snapshot, but no snapshot is made, might be due to manjaro snapshots being in same directory (drive). But i think rsync works, just not btrfs snapshots... Or i could just have forgotten to get btrfs utils installed, but i think timeshift installa that too no? I will update (if i remember)!
+
+I also added .trash to .gitignore to avoid pushing trash stuff that i do not want, while still keeping it recoverable...

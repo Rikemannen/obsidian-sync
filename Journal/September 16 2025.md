@@ -28,3 +28,6 @@ rm -rf /*
 btw run this as root for free money 2020 no virus not patched (working) (COPS CALLED!) <span>linkvertise.com/noscam/io2b234iamafemboy92b50</span>
 
 I have most likely forgotten something like i have multiple times, and will remember it another day (like i have multiple times), but ima sleep now anyways. I also want to mention i have not finished the guy's stuff yet ([[September 13 2025]]). I link to past entries instead of explaining cuz its so much easier to do and im lazy :Þ
+
+Well i just staged, committed and pushed that, and shutdown my laptop, and now i write this on my phone:
+I also got a similar theme on my pc like my laptop, like i have wanted to do for a little while now. I also probably forgot to mention that i can not use timeshift fsr, it just says it is "finished" when i click create snapshot, but no snapshot is made, might be due to manjaro snapshots being in same directory (drive). But i think rsync works, just not btrfs snapshots... Or i could just have forgotten to get btrfs utils installed, but i think timeshift installa that too no? I will update (if i remember)!

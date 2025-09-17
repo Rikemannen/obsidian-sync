@@ -1,20 +1,24 @@
 {
   "main": {
-    "id": "efa7b358e5a75871",
+    "id": "94de506db9c2c7a6",
     "type": "split",
     "children": [
       {
-        "id": "2caf0ab0d38ae1d5",
+        "id": "f415f2fb92038865",
         "type": "tabs",
         "children": [
           {
-            "id": "bda2fefddaf085af",
+            "id": "78fab36bd6955945",
             "type": "leaf",
             "state": {
-              "type": "empty",
-              "state": {},
+              "type": "markdown",
+              "state": {
+                "file": "Journal/September 17 2025.md",
+                "mode": "source",
+                "source": false
+              },
               "icon": "lucide-file",
-              "title": "New tab"
+              "title": "September 17 2025"
             }
           }
         ]
@@ -23,15 +27,15 @@
     "direction": "vertical"
   },
   "left": {
-    "id": "b8c0fa67044e4a74",
+    "id": "71545abb2aa55e58",
     "type": "split",
     "children": [
       {
-        "id": "a5172b60800ae165",
+        "id": "abf81d90240111b0",
         "type": "tabs",
         "children": [
           {
-            "id": "6446c5dc66a52172",
+            "id": "11da0e2156341ab8",
             "type": "leaf",
             "state": {
               "type": "file-explorer",
@@ -44,7 +48,7 @@
             }
           },
           {
-            "id": "6d2eb2f6db34fd77",
+            "id": "e0aefae0c0c6dd44",
             "type": "leaf",
             "state": {
               "type": "search",
@@ -61,7 +65,7 @@
             }
           },
           {
-            "id": "9ff7032dac7f4530",
+            "id": "278e9e78dcbeecf9",
             "type": "leaf",
             "state": {
               "type": "bookmarks",
@@ -77,20 +81,19 @@
     "width": 300
   },
   "right": {
-    "id": "2afc77904b5d4a33",
+    "id": "628ea092b50429da",
     "type": "split",
     "children": [
       {
-        "id": "96ee650534d66977",
+        "id": "0908256f8759f6e6",
         "type": "tabs",
         "children": [
           {
-            "id": "86f75d93770b30e1",
+            "id": "a4921b2359d6e728",
             "type": "leaf",
             "state": {
               "type": "backlink",
               "state": {
-                "file": "Welcome.md",
                 "collapseAll": false,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -100,25 +103,24 @@
                 "unlinkedCollapsed": true
               },
               "icon": "links-coming-in",
-              "title": "Backlinks for Welcome"
+              "title": "Backlinks"
             }
           },
           {
-            "id": "d403573e41181f1e",
+            "id": "e2b1097c96fcae8f",
             "type": "leaf",
             "state": {
               "type": "outgoing-link",
               "state": {
-                "file": "Welcome.md",
                 "linksCollapsed": false,
                 "unlinkedCollapsed": true
               },
               "icon": "links-going-out",
-              "title": "Outgoing links from Welcome"
+              "title": "Outgoing links"
             }
           },
           {
-            "id": "29624fdeada2e52b",
+            "id": "29a664f82e129a2b",
             "type": "leaf",
             "state": {
               "type": "tag",
@@ -133,21 +135,22 @@
             }
           },
           {
-            "id": "59ff7c97e43b6145",
+            "id": "7d4a68dfa944f290",
             "type": "leaf",
             "state": {
               "type": "outline",
               "state": {
+                "file": "Welcome.md",
                 "followCursor": false,
                 "showSearch": false,
                 "searchQuery": ""
               },
               "icon": "lucide-list",
-              "title": "Outline"
+              "title": "Outline of Welcome"
             }
           },
           {
-            "id": "79f7d127b12210c6",
+            "id": "8a0a3ee4722f6be2",
             "type": "leaf",
             "state": {
               "type": "git-view",
@@ -165,53 +168,47 @@
   },
   "left-ribbon": {
     "hiddenItems": {
-      "bases:Create new base": false,
       "switcher:Open quick switcher": false,
       "graph:Open graph view": false,
       "canvas:Create new canvas": false,
       "daily-notes:Open today's daily note": false,
       "templates:Insert template": false,
       "command-palette:Open command palette": false,
+      "bases:Create new base": false,
       "obsidian-git:Open Git source control": false
     }
   },
-  "active": "bda2fefddaf085af",
+  "active": "78fab36bd6955945",
   "lastOpenFiles": [
+    "Journal/September 09 2025.md",
+    "Journal/September 17 2025.md",
     "Journal/September 16 2025.md",
-    "Journal/September 13 2025.md",
     "Journal/September 15 2025.md",
-    "Hehe, sexuality, mmm/Trans names (if thats what i want).md",
-    "Hehe, sexuality, mmm/Fuck it, journal².md",
-    "Fuck.md",
-    "\"Fuck.md",
-    "[[\"Fuck.md",
-    "[[Fuck.md",
-    "^adb5d9.md",
-    "here(.md",
-    "Journal/August 16 2025.md",
-    "Journal/August 10-12 2025.md",
     "Journal/September 14 2025.md",
-    "Hehe, sexuality, mmm",
+    "Journal/September 13 2025.md",
     "Journal/September 12 2025.md",
-    "Untitled 2.base",
-    "Untitled 1.base",
-    "Untitled.base",
     "Journal/September 11 2025.md",
     "Journal/September 10 2025.md",
-    "Journal/September 09 2025.md",
-    "Journal/September 08 2025.md",
-    "Untitled 11.base",
-    "Untitled 10.base",
-    "Untitled 9.base",
-    "Untitled 8.base",
-    "Untitled 7.base",
-    "Untitled 6.base",
-    "Journal/August 30 2025.md",
+    "Hehe, sexuality, mmm/Trans names (if thats what i want).md",
+    "Hehe, sexuality, mmm/Fuck it, journal².md",
+    "Hehe, sexuality, mmm",
     "Journal/September 02 2025.md",
-    "Journal/September 01 2025.md",
+    "Untitled.base",
+    "Journal/September 08 2025.md",
     "Journal/September 07 2025.md",
     "Journal/September 06 2025.md",
     "Journal/September 05 2025.md",
-    "Journal/August 12 2025.md"
+    "Journal/September 04 2025.md",
+    "Journal/September 03 2025.md",
+    "Journal/August 10-12 2025.md",
+    "Journal/September 01 2025.md",
+    "Journal/August 31 2025.md",
+    "Journal/August 30 2025.md",
+    "Journal/August 29 2025.md",
+    "Journal/August 28 2025.md",
+    "Journal/August 27 2025.md",
+    "Journal/August 26 2025.md",
+    "Journal",
+    "Furry stuff"
   ]
 }

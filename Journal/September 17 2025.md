@@ -25,3 +25,8 @@ Bro the guys are laughing now (not muh but the teacher is here) i justwant them 
 Now when the class next to our classroom have eneded, they were knocking at the wall, and so the guys here went crazy shouting and we cant hear the other people talking, bro i hate this so muchh :(
 Class is over now!!
 
+
+We had pphysics just a while ago, and it was so fucking funny bro, the teacher was gonna demonstrate static electricity and he took a cloth and a whiteboard pen and started rubbing them together. And then started momoaning and saying he didnt do it hard enough omg. We also talked about how water boils under a high enough pressure (in room temp) And how you cant boil an egg on mount everest (making it harden). Yea we talked a lot about eggs in heat learning or whatever.  We are having a test soon thats why we talk about it, we were also in the renovated classroom today, it smelt good and it was really good looking. But the tables have **already** started getting worn out due to chairs going up and down. And people will most likely start to fill the drawer/cabinets with trash soon, since thats just what they do :/
+
+Im gonna make this script that i am using now to jounal also allow some commands such as switching file, commiting, pushing and pulling from git, opening other files (i forgot if i said that, i will check).
+

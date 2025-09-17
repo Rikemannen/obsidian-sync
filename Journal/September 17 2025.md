@@ -44,3 +44,21 @@ SP, sneak peek, show clear text
 MP, masked peek, show asterisks for everything but some things, ` \n!?."#()'/:-_<>|`
 Anyways ima play games now, until later. Btw this was my longest entry before night so far (i believe).
 Oh and i also want to solve the issue where obsidian opens the daily note even if its empty, which means i have to delete it again to pull, but thats for another time :P
+
+Its now night, i am journaling (yes that is how its spelled, yes i have spelt it wrong, what r u gonna do about it?) on my phone even though i could do it on my laptop, whatever. I just wanna write a few more things.
+I took clothes for tomorrow, and im thinking of wearing my hoodie since i like it. Well its the other one so idk. It just felt so comfy now that i felt it in my wardrobe. I have also decided that all future purchases will be hoodies and tshirts (i wish i could add skirts and girl jeans but we arent quite there yet). I do want oversized hoodies, but how am i supposed to get that? My mom has said/asked something about clothes that hang a little loose, does that include oversized 🥺 Anyways ill just say i want it, and if she states that its girly i might aswell come out (depending on the circumstances and in case lying gets too hard)
+I do want a pink hoodie to match the thigh highs and arm warmers im going to get later when in stock (https://angypaws.com/) but how the hell do i explain that to my mom without coming out. I gotta shop with someone else. Or alone, but i dont think i can do that, it would be so akward at the checkout even if i plan ahead like a mission. And tbh ive never seen a pink hoodie in the stores at our mall, but i dont go to the girl section that often either so...
+
+Now something else:
+I know this myself but i still want to write it down, as if im telling a human, but the quote i go by that i have made myself is "its never a waste if it turns out ok", it does stretch a bit, so lets say you break a pen during a test, its ok to break a pen during a test (on accident) if you pass the test, BUT, the ok part can still be you trying, its ok to break a pen if you tried on the test. Yeah ill stfu what is this 😭
+
+Btw [[September 14 2025]] u suck >:D
+1800 words baby.
+
+Anyways IM NOT DONE. Today i also challenged some people in my class to arm wrestling, i think i won one or two and lost five or six :P
+
+Oh and this is also the first time ive wanted to journal, i cant wait to do it in secret again tomorrow >:3c. Oh wait ill do you one better: <|:38 wizard cat with huge knockers or smth.
+I also want to mention that my brain has been rewired, i now wake up in between every dream 😭
+Today i woke up, wrote down my dream, fell asleep and repeat, thats why i can write so much, in the morning i remember 50% of it, if that means half the quantity or half the details is up to yo- wait me, idk same person reading anyways ([or is it](https://m.youtube.com/watch?v=TN25ghkfgQA))
+
+Yea now ima go to sleep, or atleast look at my phone, i havent made that post on my reddit profile like i said i would (i did right?). I will now, maybe idk.

@@ -30,4 +30,8 @@ We had pphysics just a while ago, and it was so fucking funny bro, the teacher w
 
 Im gonna make this script that i am using now to jounal also allow some commands such as switching file, commiting, pushing and pulling from git, opening other files (i forgot if i said that, i will check).
 
-Test
+Alright, ive gotten the script working somewhat, one issue tho, i cant run commands (for example sneak peek which shows me the text) and then edit it, since when i press enter (which i have to in order to type a command) it doesnt allow me to go back. But atleast it works, which is the main thing, i can now clear stdout, push and pull from github, exit and get help.
+Alright i did have a weird thing where it didnt savve to file until i exited, but i added some paramterer to the file open statement and it fixed! Now it works!
+hello! this is a test?? ok. #header (not really)
+goofy "aah" test!?.()
+masked = "".join(c if c in " \n!?.\"#()'/:-_<>|" else "*" for c in f.read())

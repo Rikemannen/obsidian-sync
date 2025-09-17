@@ -30,3 +30,4 @@ We had pphysics just a while ago, and it was so fucking funny bro, the teacher w
 
 Im gonna make this script that i am using now to jounal also allow some commands such as switching file, commiting, pushing and pulling from git, opening other files (i forgot if i said that, i will check).
 
+Test

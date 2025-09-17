@@ -1,3 +1,6 @@
+I was driving a tractor at home and was doing certain things with it to get certified or whatever. For example driving to a point. Only issue is i couldnt do some since i had a wagon with me. At the end i.gave up and drove into a pile of wheat to slow myself down some i was going somquickly and couldnt brake 
+I was on a green made of sand and was helping some sports guys pack it with sand, well suddenly a komodo dragon appeared on it and they called to report it, i asked if i could have it but "it was endangered".
+
 Yay i have now made a program that makes other people not see what i type!!! My friend is literally sitting next to me and cant see what im typing. Anyways we have german now!
 
 Today during, or well between two classes i think it was, idrk rn, anyways Niva askedme if i was gay, in a joking way, and i just responded yes. I just wanted to say that :P

@@ -43,3 +43,4 @@ L, clear screen
 SP, sneak peek, show clear text
 MP, masked peek, show asterisks for everything but some things, ` \n!?."#()'/:-_<>|`
 Anyways ima play games now, until later. Btw this was my longest entry before night so far (i believe).
+Oh and i also want to solve the issue where obsidian opens the daily note even if its empty, which means i have to delete it again to pull, but thats for another time :P

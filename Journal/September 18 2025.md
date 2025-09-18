@@ -1,3 +1,8 @@
+I was at a huge pool with several underwater rooms, like one with 3d printers and one with food. Breathing was no issue sinnetou could brqtue water or smth, brother was talking. After that i went to taste test expensive food items like precppked meals and salt with som either people, it was all disgusting.
+As i wrote that and was laying .y head back in my pilłow i promise i heard a ragdoll universe rare chest spawning sound, just one note tho like "dutt".
+Oh and to add, i also dreamt in that same dream as before that i came out to a table of people. Everything happened with my cousins or friends at school. 
+I dreamt about years again, like year 2070 or smth idk.
+
 Well we had math just now, and i did like 5 things, it was about circumference of a circle and stuff. And I also saw that Niva had a pink hoodie, holy shit it is cool, i want one so bad (like i said in [[September 17 2025])
 Anyways Veronikahadnt overslept, she was apparently sick. But that doesnt really matter now anyways...
 Well we have history now, i am **not** looking forwarto it :/. We are (probably) going to present our presentations we made last week, the one i didnt do anything on and the one i was with did most of the work in. We begin now, i will write more later!

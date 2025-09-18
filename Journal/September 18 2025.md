@@ -25,3 +25,5 @@ $
 oops
 had to fix internet for pull/push :P
 
+
+We just ended pe, and we played like volleyball and stuff the whole time, we ran one round around the football field things andthen just played other stuff. Uhh, yea thats about it ig :)

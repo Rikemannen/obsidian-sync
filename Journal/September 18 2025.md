@@ -8,3 +8,5 @@ Idk what more to write, we start in 4 min, it is really funny to write like this
 Valter just checked what i was doing, he doesnt seem to care tho.
 
 We just got info from the pe teacher that he is going to the dentist and we are starting it later, and we are checking our rsults of orientating (is that correct???) from the mountain thing yk, (put link here!!) And we are also ging to have initial time to play volleyball (yay) and pingpong (among others ofc).
+We just finished hisory now, i didnt have to present ours! only 3 people had to, one group with italy only and two other randomly chosen ones.  We now have break for like 25 min which is very nice, we ave swedish next btw. Well idk what to write rn ubt thats a bout it ig.$^
+Oops i typed command there lol

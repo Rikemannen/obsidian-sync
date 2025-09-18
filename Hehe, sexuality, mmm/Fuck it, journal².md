@@ -18,3 +18,6 @@ I also wanna add, when coming out i can say this:
 
 Yea i have no idea yay!
 Most things i listed here ([[#^d5e99b]]) still stand (how tf do i make the link say here???) Although i do want to change point two ([[#^be27ca]]) to add "mainly", cuz its not really fully that, but mostly. And i do not know at all what i want to identify as, but im leaning towards masulinity today (i think omg).
+
+# 18 sep
+I was just laying here thinking about transitioning, and i got a very odd feeling about actually going through with the process of it, and i cant say i hated it.  God i really want girl clothes so i can try that shit out. My body is fucking perfect for that shit.

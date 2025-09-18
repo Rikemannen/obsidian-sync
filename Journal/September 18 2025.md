@@ -38,3 +38,5 @@ Anyways my shoulders hurt from laying like this now, ima stop here!
 
 Yay i forgot to mention some stuff and i am now on my phone!
 Anyways i saw a reddit post asking for reaction pics, i sent the "and we are off to the comment section" image i have, its not a reaction image but its funny :)
+
+I also forgot to add that two people from 7th grade were annoying me like crazy while i was waiting for the bus, i was playing games and they just couldnt leave me alone. I got so mad but i couldnt do anything, i just hate them all, i feel like there are only a few guys on this school that arent worthless, my 4 friends, some people (keyword: *some*) in the other classes in 8th grade, and like 1-2 in 7th, 9th grade is much better. I just hate all of the annoying ones with a burning passion.

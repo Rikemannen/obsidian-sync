@@ -14,3 +14,6 @@ We talked about who in the book had done it, why one chapter wasnt in it even if
 *Of course* that wasnt all we talked about, we also talked about the other things such as drug abuse and depression but those arent as enjoyable...
 
 At home i have now started doing some changes to my site, before that i just did nothing pretty much. I have one issue were a checkbox in exercise settings just refuses to work, it works locally but not on the actual site :/
+
+I wont write much rn cuz om tired and its late, but i got comfy and doomscrolled reddit on my laptop for a solid 2 hours or smth. I then brushed my teeth and shipped showering and then did some Python courses for the first time in 4 months, i figured out that ^ is XOR and ** is raised by...
+I then went to drink and here we are, goodnight (idk why i write that, maybe ur reading at night?)

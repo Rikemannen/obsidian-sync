@@ -15,5 +15,9 @@ We talked about who in the book had done it, why one chapter wasnt in it even if
 
 At home i have now started doing some changes to my site, before that i just did nothing pretty much. I have one issue were a checkbox in exercise settings just refuses to work, it works locally but not on the actual site :/
 
+Uhh im bored asf rn, ill just write down some shit ig
+im lonely :¦D (new emoticon just dropped?!) i just want a guy to be with whenever i want. god i just looked a bit on wplace and the art is so cool, but fsr i feel like i cant participate, idk why :(
+i want someone to just help me not be like this.
+
 I wont write much rn cuz om tired and its late, but i got comfy and doomscrolled reddit on my laptop for a solid 2 hours or smth. I then brushed my teeth and shipped showering and then did some Python courses for the first time in 4 months, i figured out that ^ is XOR and ** is raised by...
 I then went to drink and here we are, goodnight (idk why i write that, maybe ur reading at night?)

@@ -7,3 +7,11 @@ And then i didnt wanna play anymore, i did do shit at the table like spinning th
 
 Im at home now, but before i did go home i played a little more with the others and then went to the big couch and coded some, i have now added an exercise creator to my site (still not fully released but it is there in its own branch). I then scrolled reddit again, and i told my parents i wanted to go home 4 times before we did, on the way home our neighbours kid came with us. Anyways ima scroll some reddit and then sleep :P
 Time is 00:48 btw
+
+I forgot to mention two things:
+I found a really good edit of a round about, i have it an award it was so good, i think ive watched it 10 times minimum.
+And im getting pancakes tmrw yay!!!
+
+Can someone tell me why i love traffic cones so much..?
+
+Oh and my screen time in reddit was 6 hours today (and tmrw, since time is 1:14, 47 min there)

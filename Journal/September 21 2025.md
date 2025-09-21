@@ -43,4 +43,4 @@ And finally, i feel like i have *some* kind of thing, i mean like *neurodivergen
 
 And ill leave it at that, ima scroll reddit now! (i might end up adding more, oh well)
 
-I was right!! Eh i just wanna say, i **can not** stop watching that round about edit i found, it is so good, and while i am in my saved posts i just also check the stridsfordon vid too...
+I was right!! Eh i just wanna say, i **can not** stop watching that round about edit i found, it is so good, and while i am in my saved posts i just also check the stridsfordon vid too... Oh my are my friends gonna get to watch them tmrw >:3 (i have now replaced >:D with >:3 in my internal dictionary)

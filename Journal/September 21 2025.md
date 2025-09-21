@@ -42,3 +42,5 @@ When i am out and about ill write down some sentences about what i am doing, jus
 And finally, i feel like i have *some* kind of thing, i mean like *neurodivergency*, **i am not certain at all whatsoever** but i do feel like my behavior is a bit strange... **YOU KNOW WHAT!?** [[Triggers (Ill just call it that idk)]] Ive thought about doing it and here it is! Also another note is that today when we were shopping, i could not stop touching **everything**, i told my mom i did it to have something to entertain as many senses with, and i told her i didnt just want to see things, i wanted to touch them (2/5) and eventually i figured out i also knocked at stuff to *"pleasure"* my hearing (3/5) (smell and taste are hard, i sometimes smell stuff but i cant "summon" it). idk why i do this, i guess because its fun. idk if this is something "real" or im just being annoying but it is me ig :)
 
 And ill leave it at that, ima scroll reddit now! (i might end up adding more, oh well)
+
+I was right!! Eh i just wanna say, i **can not** stop watching that round about edit i found, it is so good, and while i am in my saved posts i just also check the stridsfordon vid too...

@@ -1,0 +1,3 @@
+I forgot my first dream but my second one was waiting for someone to cook something so that we could do something to some rich people with it...
+
+I just got up and put on clothes and i did pick the right pants yesterday, the ones i have now are the ones i want. Ill try not to get them dirty (impossible)

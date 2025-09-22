@@ -13,30 +13,15 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Journal/September 21 2025.md",
+                "file": "Journal/September 22 2025.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "September 21 2025"
-            }
-          },
-          {
-            "id": "f6570eefc449332e",
-            "type": "leaf",
-            "state": {
-              "type": "markdown",
-              "state": {
-                "file": "Journal/September 21 2025.md",
-                "mode": "source",
-                "source": false
-              },
-              "icon": "lucide-file",
-              "title": "September 21 2025"
+              "title": "September 22 2025"
             }
           }
-        ],
-        "currentTab": 1
+        ]
       }
     ],
     "direction": "vertical"
@@ -194,10 +179,12 @@
       "obsidian-git:Open Git source control": false
     }
   },
-  "active": "f6570eefc449332e",
+  "active": "5fb2bbceea4ddd5c",
   "lastOpenFiles": [
-    "Other stuff fun and boring/Triggers (Ill just call it that idk).md",
+    "Hehe, sexuality, mmm/Fuck it, journal².md",
     "Journal/September 21 2025.md",
+    "Journal/September 22 2025.md",
+    "Other stuff fun and boring/Triggers (Ill just call it that idk).md",
     "Other stuff fun and boring",
     "Journal/September 20 2025.md",
     "Journal/September 19 2025.md",
@@ -207,7 +194,6 @@
     "Journal/September 16 2025.md",
     "Journal/September 13 2025.md",
     "Hehe, sexuality, mmm/Trans names (if thats what i want).md",
-    "Hehe, sexuality, mmm/Fuck it, journal².md",
     "Fuck.md",
     "\"Fuck.md",
     "[[\"Fuck.md",
@@ -230,7 +216,6 @@
     "Untitled 10.base",
     "Untitled 9.base",
     "Untitled 8.base",
-    "Untitled 7.base",
-    "Journal/August 30 2025.md"
+    "Untitled 7.base"
   ]
 }

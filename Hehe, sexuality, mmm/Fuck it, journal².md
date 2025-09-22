@@ -27,3 +27,8 @@ Ya girls done it again, i am now researching about hrt stuff again, and im just 
 Ill start figuring shit out, talking with higher pitch to myself etc. But this actually keeps me up at night (22:00 rn hehe)
 Motherfucker i even try to laugh femininely, is that femboy behaviour??
 Ive thought about this one thing a little, my cousins have one old sister and one young bother, both families have that, and then we come to mine, two brothers, lets fix that :3c
+
+## 22 sep
+Idk what got into me last night but whatever.
+I read something today, about some guy (ftm) who wanted to transition but wasnt dysphoric about their feminine side. (literally me but in reverse) And another person responded saying that they just pretend to be happy about their fem side, while in reality they would be happier transitioning. And so idrk what to do :/
+What i need to find out is if i am a femboy or trans. But how do i do that??

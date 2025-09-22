@@ -32,3 +32,10 @@ Ive thought about this one thing a little, my cousins have one old sister and on
 Idk what got into me last night but whatever.
 I read something today, about some guy (ftm) who wanted to transition but wasnt dysphoric about their feminine side. (literally me but in reverse) And another person responded saying that they just pretend to be happy about their fem side, while in reality they would be happier transitioning. And so idrk what to do :/
 What i need to find out is if i am a femboy or trans. But how do i do that??
+
+Here it is again, updated once again:
+
+- I like wearing feminine clothes and want more of them
+- I like boys
+- I feel like i would be happier if i transition
+Thats pretty fair right?

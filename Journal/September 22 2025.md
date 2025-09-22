@@ -13,3 +13,6 @@ One thing that i am thinking about rn is that quote i heard/read a while back:
 *Treat everyone with respect until they proove that they don't need that kind of treatment*, its so fucking good bro.
 We have ust eaten, we also had math, i didnt do jack shit. Im now sitting and waiting for history to begin, tbh im kinda sad rn :(
 I just want someone that can somewhat relate to me when i talk about my problems, bbut that doesnt exist :(
+Uhh Ignas/Liam or whatver just broke a new ping pong racet, and they are still throwing them around :/
+They also broke ignas's cap :D
+An dthey are doing shit (they=valter) with melvins computer.

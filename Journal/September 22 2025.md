@@ -1,3 +1,7 @@
+I dreamt about being in the us and trying to get home before school started, but i was stuck trying to order at McDonalds since there were so many things like cheese blocks and pineapple that you could buy. I eventually went to the cashier to order, but i woke up. I remember the screens were at a website called "spendrups" or smth...
+I also dreamt about being at some sponsored event with shitloads of food, but that made me late or smth so i time traveled away from that to not get late..?
+
+I have now woken up, i did take my new pants, however my mom got an "old" shirt for me. When she was looking for a shirt to have outside i said that she could take my hoodie. So yea im also gonna get my thigh highs later.
 
 Uhh im just journaling now cuz why not, i just had music,  iplayed with Jamie most of the time , it was fun ... :)
 

@@ -50,3 +50,8 @@ I have now played some sound space and i actually beat tilt with s++++ and ghost
 
 I am now "playing" rt3, but my headphones decided to shit themselves and started sounding scary af. Ultraw has now added drinks to rt3 btw!
 I also changed battery on my mouse, which was the reason it was ass :/
+
+Uhh i played more rt3 and started building on my extension to it, my mom and dad wanted me to go shower so bad, which makes me want to do it less. I did eventually tho ofc. And now i am here, i also got my first food critic! They gave me 2.3 stars (or 3.2 i forgot)
+Anyways i really am trans, no matter how much i deny it, best i can do is nb. Im jk but i am certainly not sure. Anyways this was my first 2000 word entry. A lot of venting here and in [[Hehe, sexuality, mmm/Fuck it, journal²|Fuck it, journal²]] but i like it :)
+
+Im not gonna sleep for a lil now, goodnight.

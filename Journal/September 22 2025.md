@@ -16,3 +16,7 @@ I just want someone that can somewhat relate to me when i talk about my problems
 Uhh Ignas/Liam or whatver just broke a new ping pong racet, and they are still throwing them around :/
 They also broke ignas's cap :D
 An dthey are doing shit (they=valter) with melvins computer.
+Uhh Algot was just like strangling melvin.... idk if it was soft or nah but what the hell??
+And then i told him to stop it, and he was just like "oh hello!
+And so i elbowed him in the leg (sofltly but who cares) and he pushed me and shit...
+They are now having a fight... Well not him but others, god i hate em all omg.

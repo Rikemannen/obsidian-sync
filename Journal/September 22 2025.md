@@ -20,3 +20,8 @@ Uhh Algot was just like strangling melvin.... idk if it was soft or nah but what
 And then i told him to stop it, and he was just like "oh hello!
 And so i elbowed him in the leg (sofltly but who cares) and he pushed me and shit...
 They are now having a fight... Well not him but others, god i hate em all omg.
+$Åd
+I coded a little (idk if i mentioned) before history, and during history we watched a movie, listened to the teacher talk and then rad the book and wnswered some questions.
+And im just like really sad rn, like idk if i wanna be trans or nah and its really annoying, i really want to talk to someone :( idk who tho, nobody can realate and best thing they can do is listen :(
+Well lets stop with the negativity, i do know *one thing*, i like boys :3 oh and wearing femme clothes, although one thing that is really annoying are thigh highs that go down oto ypour knees after a little while.
+well Niva has just sat down on my table, aswel as veronika ( and alwin is alsohere.) i just wanna tell them all but idk how they will rect and if theyll help etc raaahh.

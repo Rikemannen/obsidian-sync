@@ -13,3 +13,6 @@ Idk what evlse to say there, we ate soup for lunch and bread.
 I now got Inez things from freja and i took a hawirband or something and put it on my arm, actually love it oml i need this :3
 Oh and another not fun thing i noticed is that you can now see my moustache :((((((((((((((((((
 Now they are saying that people in Fredriks class (the teacher) think that they have too many test nex tweek, that hasnt even crossed my mind that we have 3 (everyone does, but i think one had 4 idk whatever) that just feels dumb to me but i dont mind, i just had to write this down :p
+Bro class B has 2 things, C has 3, we have 4, what are they complaining about??
+Everything is a mess cuz we have those talks and so we end 2 every day one week..
+Uhh the teacher just left and so everyone of the guys went and knocked the everliving shit out of that wall things. I FUCKING HATE THEM!!! I wanna tell someone so bad but i prob wont. And now that the teacher is back they are all sgetting "mad" at the other side knocking back. I want them all to get like expelled or something, thatd be awesome :D

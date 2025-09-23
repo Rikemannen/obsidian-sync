@@ -39,3 +39,11 @@ Here it is again, updated once again:
 - I like boys
 - I feel like i would be happier if i transition
 Thats pretty fair right?
+
+## 23 sep
+Omg im talking to myself in a higher pitch and i literally feel my throat doing the thing (if you get it 😭) and it feels so good wth i love talking like a girl whattt. BUT:
+I want to be a girl, but at the same time i want to be someones boyfriend, this is so fucking hard. I can also see myself in the tv when i play/write this and i dont like how i look while talking like this, it doesnt fit yk. I thing i do wonder is how i would feel if people at school called me a feminine name? Id like it (probably).
+If i wasnt so paranoid for no reason whatsoever id talk like this when im home alone or going home from school alone etc. I mean i probably will but yk (you dont know cuz idek lol)
+Another thought:
+Once i got shopping i can go with Niva and Veronika (well probably the first of the two idk) and itll just look like two girls shopping together. Thatd be so cool, but who knows if they even will accept me??
+My mom just called me and wanted help, and just before i took the call i thought about not swallowing and stuff to reset that thing in my throat. But just as i picked up i did, idek if such a thing is true or whatever where if you talk long enough like this you get used to it yk, but i dont really want her to hear this.

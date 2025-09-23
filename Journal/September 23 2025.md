@@ -12,3 +12,4 @@ Anyways when chaning oscar said svea was horrible and didnt listen (she wasnt om
 Idk what evlse to say there, we ate soup for lunch and bread.
 I now got Inez things from freja and i took a hawirband or something and put it on my arm, actually love it oml i need this :3
 Oh and another not fun thing i noticed is that you can now see my moustache :((((((((((((((((((
+Now they are saying that people in Fredriks class (the teacher) think that they have too many test nex tweek, that hasnt even crossed my mind that we have 3 (everyone does, but i think one had 4 idk whatever) that just feels dumb to me but i dont mind, i just had to write this down :p

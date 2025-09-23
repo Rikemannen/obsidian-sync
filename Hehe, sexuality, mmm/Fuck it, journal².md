@@ -47,3 +47,4 @@ If i wasnt so paranoid for no reason whatsoever id talk like this when im home a
 Another thought:
 Once i got shopping i can go with Niva and Veronika (well probably the first of the two idk) and itll just look like two girls shopping together. Thatd be so cool, but who knows if they even will accept me??
 My mom just called me and wanted help, and just before i took the call i thought about not swallowing and stuff to reset that thing in my throat. But just as i picked up i did, idek if such a thing is true or whatever where if you talk long enough like this you get used to it yk, but i dont really want her to hear this.
+But to be real i dont want to be a girl, i want to present as one but not be one. I want to be a guy... I cant figure this shit out by myself rahhh

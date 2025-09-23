@@ -22,3 +22,5 @@ Anyways im at home now, i didnt do shit except for look at my phone. I then went
 He will know what a skirt is tho, but thats not the point im trying to get across.
 
 Taking attention away from [[Fuck it, journal²]] for a while, i am earning money like crazy after buying marble stuff and upgrading my meals in rt3!! Also i got a warning by roblox for saying gg and stuff while i played ragdoll universe.
+
+I played a lot of rt3 and then we ate fish stocks, this is supposed to be before last chunky of text but whatever. I am now gonna sleep.

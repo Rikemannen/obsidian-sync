@@ -24,3 +24,5 @@ I (for some reason) paid double. Idk why i do this, last time i was in the store
 I am now at home and im writing this, i didnt eat anything except went right up BUT i did start a print for that guy's things. Im halfway done, or even more idk. Ima play rt3 now :P
 
 I have now played a lot of rt3, i rebuilt my restaurant to make it even bigger, i have all the bottom floor expansions now. I also put out a bunch of tables, well not many but all i could (except for small ones). I had like 20k as my highest, then bought expansions and went down to just a few k. My biggest check from one table was >300. Idk what else to write, i am going to sleep now (soon).
+
+Btw we ate meatballs and potatoes today. I also finished that puzzle thing.

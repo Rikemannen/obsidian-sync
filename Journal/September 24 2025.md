@@ -22,3 +22,5 @@ After class ended i went with Niva and Veronika to the store and bought some stu
 I (for some reason) paid double. Idk why i do this, last time i was in the store and someone else payed (i payed with someone elses card, [[September 12 2025]]) Anyways i basically ended up earning Veronika 20 money (i write money cuz "kr" is cringe :P)
 
 I am now at home and im writing this, i didnt eat anything except went right up BUT i did start a print for that guy's things. Im halfway done, or even more idk. Ima play rt3 now :P
+
+I have now played a lot of rt3, i rebuilt my restaurant to make it even bigger, i have all the bottom floor expansions now. I also put out a bunch of tables, well not many but all i could (except for small ones). I had like 20k as my highest, then bought expansions and went down to just a few k. My biggest check from one table was >300. Idk what else to write, i am going to sleep now (soon).

@@ -1,0 +1,1 @@
+I was cooling meals ok physics or whatever, i was cutting apples, literally just cutting apples. I also used a horrible knife.

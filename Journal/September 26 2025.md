@@ -1,3 +1,6 @@
+I was going to participate in a wooden car race and me and my dadere gonna make ours get larger and smaller. We also had some kind of party at all our home.
+
+Well i never woke up today cuz noone was saying anything and i never go up from my alarm fsr. So now the time is 7:30 and i am gonna get a ride to school later :P
 
 We just started german, and they started talking about the banging stuff right outside the two classrooms. And when we came in they started listing names that bang, and hampus said me?????? I said i have proof tho :P
 
@@ -96,3 +99,8 @@ I want someone to ask how im feeling, and where i can just say it all.
 I want someone to be with anytime i want.
 I hate living far away from fun stuff. Sure i can bike 20 min just to get to a bus stop, but i want to live in a city.
 I want to be able to express myself without caring.
+
+Yay im depressed
+Uhh anyways just now when i was turning off my laptop, FUCK I FORGOT TO CHECK UPTIME, anyways the logs were like tiny since i havent shur it down since Thursday when gaming, and i had a tv back then, or just cuz the hdmi expansion card is in it.
+Anyways its pretty safe to say that this is the "longest" entry yet, in terms of lines. I didnt shower today either, but i will tmrw like i did today :P
+Ima sleep now.

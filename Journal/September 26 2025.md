@@ -16,3 +16,5 @@ I feeel better now but im still like tired or smth.
 We just ate lunch, it was lasagna, it was kinda good.
 Afetter that me and melvin went to the store since i had brung my card today. I bought like wafers with chocolate and he bought pepsi and chocoalte pellets or wsmth. I paid for his cuz im so nice :) i also told him about how i do that, i am losing money but whatever :P
 (im rich hehe)
+
+We have english now and ignas ( ithink not even i know anymore) played a mtorocycle game on full volume and the teacher got mad, and just now he had yt with a vid aswell playing `._:´ And the teacher got mad at erik for the first few things. There is someone else doing something behind my back, i think its Valter, and melvin accuidentally played something too (he apolzgized and the teacher understands) I HATE THIS :(!!!!!!!!!!!!!!!!!!!!

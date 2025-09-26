@@ -17,37 +17,82 @@ We just ate lunch, it was lasagna, it was kinda good.
 Afetter that me and melvin went to the store since i had brung my card today. I bought like wafers with chocolate and he bought pepsi and chocoalte pellets or wsmth. I paid for his cuz im so nice :) i also told him about how i do that, i am losing money but whatever :P
 (im rich hehe)
 
-We have english now and ignas ( ithink not even i know anymore) played a mtorocycle game on full volume and the teacher got mad, and just now he had yt with a vid aswell playing `._:´ And the teacher got mad at erik for the first few things. There is someone else doing something behind my back, i think its Valter, and melvin accuidentally played something too (he apolzgized and the teacher understands) I HATE THIS :(!!!!!!!!!!!!!!!!!!!!
-Melvin had some problem with his computer, i asked what and the teacher was like "NO, you do your stuff" like tsfu im tryna help here...
-They played sounds again and the teacher is furious now CAN THEYY STOP????????????????????????????????
-We are writing stuff for our like things later where we talk with teacher and parets, idk what to write on first question, most others i know but now first one :(
-The other guys are getting like walls t oo put up ( i got one too :D) and valter yet again cant let his computer be alone, he keeps playing sounds that arent even funny, fricken fart sfx and facetime calling noise or whatever
+We have english now and ignas ( ithink not even i know anymore) played a mtorocycle game on full volume and the teacher got mad, and just now he had yt with a vid aswell playing `._.` And the teacher got mad at erik for the first few things. There is someone else doing something behind my back, i think its Valter, and melvin accuidentally played something too (he apolzgized and the teacher understands) I HATE THIS!!!!!!!!!!!!!!!!!!!!
+Melvin had some problem with his computer, i asked what and the teacher was like "NO, you do your stuff" like stfu im tryna help here...
+They played sounds again and the teacher is furious now CAN THEY STOP????????????????????????????????
+We are writing stuff for our like things later where we talk with teacher and parets, idk what to write on first question, most others i know but not first one :(
+The other guys are getting like walls to put up ( i got one too :D) and valter yet again cant let his computer be alone, he keeps playing sounds that arent even funny, fricken fart sfx and facetime calling noise or whatever
+Now that im writing this i kinda wanna add that i dont really like asking questions in history and wahtever cuz the teacher isnt so nice tbh.
 
-Now that im writing this i kinda wanna add that i dont really like answerasking questions on history and wahtever cuz the teacher isnt so nice tbhh.
-x
-Ill just say when they do it now,, im pretty sure they know im writing cuz they do tha tbut idc:
+Ill just say when they do it now, im pretty sure they know im writing cuz they do that but idc:
 Valter played twice :(
 some guy on the other side with anime (questionable) song like wtf
 valter fart sound 
-Some sound that is present in gordon ramsay kitchen hell (only source i know sorry) and facetime thing, probably ignas
+Some sound that is present in gordon ramsay kitchen hell (only source i know :P) and facetime thing, probably ignas
 They played some 67 sound (I FUCKING HATE THAT "MEME") and the techer got mad (they being erik, i think cuz he laughed most)
-Valter played facetime soundignas is nwo visitng valter, teacher = mad
+Valter played facetime sound
+ignas is now visitng valter, teacher = mad
 Valter fart
-Valter left :D (hes coming back tho :)Ayy there hasnt been anything for a lil while now :D
+Valter left :D (hes coming back tho)
+Ayy there hasnt been anything for a lil while now :D
 Im tired of doing exercise stuff now omg
 Ignas is back from the toilet :/
-
 Valter plays some tone, the one you use to "blur" speech
 Ignas played bruh
-and another thing idkIgnas came up to me and asked what i was doing, itold him to leave cuz he wa annoying, he told me "its not only me" fuckking idiot :P
-he is playing sounds now, cant hey just fuckingstop???
-They aree laughing fsr now
-
+and another thing idk
+Ignas came up to me and asked what i was doing, i told him to leave cuz he is annoying, he told me "its not only me" fucking idiot :P
+he is playing sounds now, cant they just fucking stop???
+They are laughing fsr now
 They played an iphone pic sound whatever
-Ignas lfet and it's been quiet for sme time now.
+Ignas left and it's been quiet for some time now.
 Teacher left and vidar is the only one making sounds, vocally tho.
 Teacher's back with ignas :/
 
+# FUN STUFF!!!
 We also got info from simon who said the thing with yk uhh activities are gonna haave music and picture learning/courses, ima sign up for the picture one :P
 We end now :P
 Ima eat chocolate wafers on the way home, no more journaling for a lil now :D (well not fun idk whatever)
+I gave a lot of wafers to others on the bus, on the way home i took an apple (very bad tasting), once i was "done" i accidentally threw it on my brother, he got mad.
+
+I am really looking forward to tuesday when we have that thing after school again, i also got info that:
+odd weeks = thursday
+even weeks = friday
+every week = tuesday
+
+friday → 23:00
+all others → 21:00
+(I love typing arrows ←^O^→) (idk what that is lol)
+
+I played some deltarune. I sent a STOP signal to deltarune yesterday, and it has been sitting there until today when i played a little in school, enough to STOP again as to not loose progress, then continued at home and finished ch. 2! Its so scary when kris takes out their heart, soul or whatever and does some weird shit.
+I also wanna get changed.
+
+We ate spaghetti and meatsauce for dinner, me and mom then watched a movie about some airline cop kidnapping a kid and gaslighting her mother into thinking the kid died, it was really good.
+In the middle of the movie we went to escort our dad when he was driving the tractor through narrow streets, it took 7 min.
+Tmrw im gonna help move bales on the field.
+Im tired.
+I hate the guys in my class.
+Im lonely.
+Im gay :3
+I wanna meet my friends again.
+I wanna come out and get fem clothes.
+I want a bf.
+I want someone to talk to.
+I want to be able to talk to anyone.
+I want to be able to not give a fuck to annoying people.
+I want to be able to tell someone that the guys at school are annoying and have them actually do something.
+I want to start focusing on my hw and stuff.
+I want someone to study with, a bf to study with. Or just someone nice to study with.
+I want to go to the thing after school and just play boring games alone, with someone around me.
+I want someone to talk to. Really, really want it.
+I need someone to talk to.
+I want to go play laserdome with my friends and loose hugely, and just have fun.
+I want to go play laserdome with my friends and bf, and then go home with him.
+I want to know why tf im writing like this??
+I want to play baseball, its fun.
+I want to go watch a game of football with melvin, cuz why not.
+I want the municipality to get their shit together and stop ruining for the students.
+I want someone to listen to me say this, instead of putting it in a god damn journal, that nobody will ever read.
+I want someone to ask how im feeling, and where i can just say it all.
+I want someone to be with anytime i want.
+I hate living far away from fun stuff. Sure i can bike 20 min just to get to a bus stop, but i want to live in a city.
+I want to be able to express myself without caring.

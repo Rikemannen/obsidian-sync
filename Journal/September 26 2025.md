@@ -18,3 +18,36 @@ Afetter that me and melvin went to the store since i had brung my card today. I 
 (im rich hehe)
 
 We have english now and ignas ( ithink not even i know anymore) played a mtorocycle game on full volume and the teacher got mad, and just now he had yt with a vid aswell playing `._:´ And the teacher got mad at erik for the first few things. There is someone else doing something behind my back, i think its Valter, and melvin accuidentally played something too (he apolzgized and the teacher understands) I HATE THIS :(!!!!!!!!!!!!!!!!!!!!
+Melvin had some problem with his computer, i asked what and the teacher was like "NO, you do your stuff" like tsfu im tryna help here...
+They played sounds again and the teacher is furious now CAN THEYY STOP????????????????????????????????
+We are writing stuff for our like things later where we talk with teacher and parets, idk what to write on first question, most others i know but now first one :(
+The other guys are getting like walls t oo put up ( i got one too :D) and valter yet again cant let his computer be alone, he keeps playing sounds that arent even funny, fricken fart sfx and facetime calling noise or whatever
+
+Now that im writing this i kinda wanna add that i dont really like answerasking questions on history and wahtever cuz the teacher isnt so nice tbhh.
+x
+Ill just say when they do it now,, im pretty sure they know im writing cuz they do tha tbut idc:
+Valter played twice :(
+some guy on the other side with anime (questionable) song like wtf
+valter fart sound 
+Some sound that is present in gordon ramsay kitchen hell (only source i know sorry) and facetime thing, probably ignas
+They played some 67 sound (I FUCKING HATE THAT "MEME") and the techer got mad (they being erik, i think cuz he laughed most)
+Valter played facetime soundignas is nwo visitng valter, teacher = mad
+Valter fart
+Valter left :D (hes coming back tho :)Ayy there hasnt been anything for a lil while now :D
+Im tired of doing exercise stuff now omg
+Ignas is back from the toilet :/
+
+Valter plays some tone, the one you use to "blur" speech
+Ignas played bruh
+and another thing idkIgnas came up to me and asked what i was doing, itold him to leave cuz he wa annoying, he told me "its not only me" fuckking idiot :P
+he is playing sounds now, cant hey just fuckingstop???
+They aree laughing fsr now
+
+They played an iphone pic sound whatever
+Ignas lfet and it's been quiet for sme time now.
+Teacher left and vidar is the only one making sounds, vocally tho.
+Teacher's back with ignas :/
+
+We also got info from simon who said the thing with yk uhh activities are gonna haave music and picture learning/courses, ima sign up for the picture one :P
+We end now :P
+Ima eat chocolate wafers on the way home, no more journaling for a lil now :D (well not fun idk whatever)

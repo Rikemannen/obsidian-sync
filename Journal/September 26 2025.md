@@ -9,3 +9,6 @@ NOw we are doing questions, and because the teacher left all the guys are playin
 $
 $
 $
+Uhh we were waiting for swedish to bgin and i started "kicking" my shoes like i do sometimes very hard, and once i kicked the last one i fell, it hurt  ;(
+Well after i fell i began to fel very hot/cold or soemrthing, i also eflt lightheaded and almost vomited and fainted. I drank water and it didnt go over, once we entered the classroom i almost fell asleep. Everyone said to go to the "doctor " here at the school and so i did, i was just shocked, i got to rest in his couch a lil :P
+I feeel better now but im still like tired or smth.

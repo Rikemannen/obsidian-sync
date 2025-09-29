@@ -9,3 +9,9 @@ Anyways after that i went home and eventually oscar came (we had planned a meetu
 Anyways thats my day, i also scrolled mcmaster-carr (yeah im weird, howd u know?) and then played general ragdoll chaos a good while, i discovered you could upgrade stuff like amount earned while ragdolled and whatever, which was nice. I earned a lot of money.
 
 Ima sleep now, this was a short entry.
+
+Wait omg i forgot, we also went to the engraver and made an image of his dog on a piece of wood, it was thin af you could see through it. And tmrw the girls who want things are coming :D
+
+Im unironically sitting with my legs crossed rn :3
+
+Oh and fun thing during math, i asked Niva and Veronika if they could type an emoticon on the calculator, thinking they couldnt. BOTH of them types x3 after just a wee bit of thinking... And i thought i was smart x3

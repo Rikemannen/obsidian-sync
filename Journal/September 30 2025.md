@@ -16,3 +16,6 @@ d$^
 WAit omg i just remembered something, yesterday (night) i cahanged my alarm volume as to hear it and wake up in the middle of the night, but i never set the alarm... im so dumb lmao.
 
 We had baseball during pe and we ran 3 rounds around the football pitch where we played baseball, it was pretty annoying, after that we ate pasta and bacon sauca or wahtever  and then i went to the like tv yk in that room in the food cort and played some furry yt videos and played it off as nothing and then some top 5 op 5 honorable mentions.Im so weird, and to add to my weirdness, during lunch the others started mixing some potion with passta and ketvchup, milk water and whatnot, they said that the guy who drinks it (i sat with adam, alvar and their friends yk) and well they said who drinks it gets 3000 money, i acted like i was gonna do it. And then they said that whoever drinks it got a femboy bf, i drank it lmao, im so fucking weird oml (and gay :3)
+
+
+oh and when i come home ima get those girls who want laser engraving there, and after that ima go to that place again and hangout with the other people, and ima bring the wii controllers and play wii sports or something, that would be fun. I just got a notification from my phone from r/teenagersbutcode???? i did fix that tho now :D

@@ -55,3 +55,10 @@ I sang on the way home (antihuman by Ivy if you must know) and it was fun, i als
 I spend a little to much money to be nice to ppl
 Im tired and going to sleep, gn! (No Lucid dreaming today)
 Oh have i bit mentioned, Oscar has created a group with some guys to play Laserdome, im in it, and its literally just for spamming. The other guys sent like feet and weird images and actual porn, idk why. Anyways we have yet to decide a date and how to get there etc, and its gonna be next weekend.
+I also wanna say that i am really good at baseball, atleast shooting, i got 2 home runs very easily. And yet the other guys always want to bitch around and shoot more than they should, and they suck!!
+I also jammed my thumb into my other thumb using the nail and got a little mark. I now have a band Aid that i got from the place yk, it kinda hurts, like you put lemon in it, not constantly but sometimes, not too bad tho.
+I also went around to people and pretended to show them a picture and instead taking a picture of them, i didnt save any but 2 people tool my phone to delete :P (thats on me idrc, if they somehow find out im gay thats kinda their fault for looking through, but how would they?)
+Oh and Jenny also showed me some pictures of a guy who had said weird stuff to her, and someone else who had sent a pic of his tactical whipped cream dispenser. Really weird. I wouldnt do that with my bf, heck, if he did to me i wouldve gotten mad or smth. Im talking as if i have one, god i wish. But there is a 100% chance that atleast one guy finds me attractive :3
+I HAVE TO SLEEP OMG no more now gn idc if i miss anything but i dont think i have.
+Fuck it, turns out the music from that round about edit is a popular song, i found that out, and one from a mc edit of killing Warden with hammer thing also had popular song, i didnt find this out today but ill mention it :P
+Goodnight whoever is reading this.

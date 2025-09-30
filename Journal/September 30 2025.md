@@ -22,6 +22,22 @@ We had baseball during pe and we ran 3 rounds around the football pitch where we
 
 oh and when i come home ima get those girls who want laser engraving there, and after that ima go to that place again and hangout with the other people, and ima bring the wii controllers and play wii sports or something, that would be fun. I just got a notification from my phone from r/teenagersbutcode???? i did fix that tho now :D
 
+Idk why i keep pushing the things but i do, ill still access on laptop later anyways :) (ironically i didnt push that lol)
+
+Yay the guys are now banging on the wall :D
+Ignas was first out
+Ignas is now asking if he can knock on the wall once if he does the thing he should in the book, everyone does the same `._.`
+
+We now have 12 minutes to "work " on the computers, nobody wil :P
+
 Omg after we quit German and were walking up the stairs to my locker and whatnot, i got stuck with my foot and my "shoe" went off. I got it back and laughed about it, and then Algot started messing with me about it or whatever, i took the shoe and smacked him in the head with it (stupidest thing ever), and then he started going after me just to pin me to the lockers and push me. If i had a weapon, yes this is probably weird or maybe not, i wouldve used it, no kidding. I am so fucking tired of these guys rn.
 
-I did get my cable back that Oscar had forgot to give me, which was nice. 
+I did get my cable back that Oscar had forgot to give me, which was nice. Yay ok so im now at the place i talked about, and its pretty nice here, i shared some brownies and isak said they were the best brownies he had ever tasted, i gave him 2 :)
+Anyways the girls were here like i said (well at home not here*) and it was awkward asf, i didnt ask all question i wanted cuz i just talked a shitload about stuff they didnt care about, and i really didnt come out as nice to them tbh, i mean they didnt mind but DAMN, i really dont know how to talk to ppl.
+
+Anyways i bought frozen pancakes for lunch along with cookies and a pepsi, kasper was with me and bought candy and christmas drink or whatever lol. I dropped the cookies once and then poured them out on a plate and microwaved, i then shared them. After that i played around and backed up my flipper and whatnot. I then ate pancakes with jam that they had, i ate 4 out of 16 and said others could take the rest, i really need to stop being so nice. I then did some stuff and then went back to the store with ludwig (i think its what his name is idrk) and bought chocolate like buttons. I shared them aswell and here we are :)Uhh a kid wanted to see what i did so im typing privately now :P any
+
+Uhh yea im thinking that during the events they have later ill probably find some cute guy, i know this is a LOOOOONG shot but damn, i need one :3
+Im probably also gona come out to theese people firstly, like nobody else really before, they are realy ince and well they have like signs with rainbows (you can guess why :P)
+I lvoe it here :P
+I just went out and follow uhh.. uhh wtf is his name?? i followed him home anyways, halfway, i didnt go over the big road. I asked him if hes gay since he said some stuff like well come home with him and something else idk, he didnt respond and so i told him not to avoid the question and he said yes (ofc) and i said me too!! Hes kinda fun :3

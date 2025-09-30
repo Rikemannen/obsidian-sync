@@ -41,3 +41,16 @@ Uhh yea im thinking that during the events they have later ill probably find som
 Im probably also gona come out to theese people firstly, like nobody else really before, they are realy ince and well they have like signs with rainbows (you can guess why :P)
 I lvoe it here :P
 I just went out and follow uhh.. uhh wtf is his name?? i followed him home anyways, halfway, i didnt go over the big road. I asked him if hes gay since he said some stuff like well come home with him and something else idk, he didnt respond and so i told him not to avoid the question and he said yes (ofc) and i said me too!! Hes kinda fun :3
+
+Alright days over, i did not come close to beating my entry length but whatever. The last few things were me checking Steam sale and talking to Filip and he told me about how he biked close to my house, well the village, when he went there to be with the people yk. And i told him about how it takes 20 min and whatnot. Before that tho i was journaling in secret and he came up and literally saw that i used Linux and said i have a good career ahead of me 🥹
+God i just fucking love being there with them. Its literally the best thing in my life rn. He also talked a bit about what they were gonna do on friday, remember friday = 23:00 and fun stuff. He said there was gonna be karaoke, and im just so excited to sing my heart out, even tho i hate my voice 🫠 I cant really talk, let alone sing, like a girl yet, but i wasnt planning to.
+
+On the way home i fantasied about having a bf riding with me and hugging me rahhh im so lonely, but damn is that thing there nice. I cant stop going now. I also really wanna wear like fem clothes to it someday, that will most likely be the first place where i wear fem clothes and come out etc. I just feel so safe there yk. Oh and on Friday we will also get to play in the gymnastics house or whatever!!
+
+Anyways im tired, but not as tired as im gonna be on Friday!! (Oh and my mom said i did get to go! We are having cousins over, the annoying ones, so thats awesome.) I did not come close to journaling lots today, but i did get a lot of details imo. This was my day, stay tuned for tmrw!!
+
+Some little more stuff here unorganized:
+Oscar got my very good butterfly knife and brought it to school 😑
+I sang on the way home (antihuman by Ivy if you must know) and it was fun, i also talked to myself.
+I spend a little to much money to be nice to ppl
+Im tired and going to sleep, gn! (No Lucid dreaming today)

@@ -1,0 +1,3 @@
+Uhh, i woke up, and then i pretty much immediately fell asleep, with the intention to Lucid dream, although i think it was just a normal dream since i didnt have control per say, i more so followed with. It started by imagining my room, then going out of it and downstairs, checking my hand to see if i was still Lucid, it went from 5 to 6 and back a lil all the time. I then went to the toilet and tried to see myself in the mirror as a girl, Yeah that didnt work. I then woke up for real.
+This wasnt a Lucid dream :(
+Although i did try the stuff i wouldve (last part :P)

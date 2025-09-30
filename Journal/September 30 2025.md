@@ -54,3 +54,4 @@ Oscar got my very good butterfly knife and brought it to school 😑
 I sang on the way home (antihuman by Ivy if you must know) and it was fun, i also talked to myself.
 I spend a little to much money to be nice to ppl
 Im tired and going to sleep, gn! (No Lucid dreaming today)
+Oh have i bit mentioned, Oscar has created a group with some guys to play Laserdome, im in it, and its literally just for spamming. The other guys sent like feet and weird images and actual porn, idk why. Anyways we have yet to decide a date and how to get there etc, and its gonna be next weekend.

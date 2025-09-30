@@ -9,3 +9,10 @@ During the morning stuff talked about like wel idk i fforgot, probably wasnt imp
 I fucking hate him and every single guy on this sch- wait no but like half the guys in our grade, they are so fucking annoying, and you cant get them to stop either. Anyways i really wanna try to journal more today like i said at the beginning but i probably cant since short day and we have physics now, which means no journaling and then pe whic, yet again means i cant journal.
 
 Hehe we have physics now with substitute and we are "reading", im doing the things we should with the book for swedish and now im journaling cuz why not. As soon as i come caross the fwew poeple in this book that are homosexual or trans or whatever i get that like heart attack yk, i love this so much, or not idk its just fun ig. Journaling like this is also very fun..
+$¨
+d$^
+
+
+WAit omg i just remembered something, yesterday (night) i cahanged my alarm volume as to hear it and wake up in the middle of the night, but i never set the alarm... im so dumb lmao.
+
+We had baseball during pe and we ran 3 rounds around the football pitch where we played baseball, it was pretty annoying, after that we ate pasta and bacon sauca or wahtever  and then i went to the like tv yk in that room in the food cort and played some furry yt videos and played it off as nothing and then some top 5 op 5 honorable mentions.Im so weird, and to add to my weirdness, during lunch the others started mixing some potion with passta and ketvchup, milk water and whatnot, they said that the guy who drinks it (i sat with adam, alvar and their friends yk) and well they said who drinks it gets 3000 money, i acted like i was gonna do it. And then they said that whoever drinks it got a femboy bf, i drank it lmao, im so fucking weird oml (and gay :3)

@@ -2,6 +2,8 @@ Uhh, i woke up, and then i pretty much immediately fell asleep, with the intenti
 This wasnt a Lucid dream :(
 Although i did try the stuff i wouldve (last part :P)
 
+I also dreamt about watching those guys's new movie that they released a couple days ago (ijustwanttobecool) and it being shorter than 2 hrs.
+
 Anyways ima try to journal as much as possible today, cuz why not. This will be the longest entry i have made so far, i just know it :P
 
 Also, ive really been thinking about the stuff in [[Fuck it, journal²]]. And idrk what's like stopping me or whatever. This shit is so hard :|
@@ -19,3 +21,7 @@ We had baseball during pe and we ran 3 rounds around the football pitch where we
 
 
 oh and when i come home ima get those girls who want laser engraving there, and after that ima go to that place again and hangout with the other people, and ima bring the wii controllers and play wii sports or something, that would be fun. I just got a notification from my phone from r/teenagersbutcode???? i did fix that tho now :D
+
+Omg after we quit German and were walking up the stairs to my locker and whatnot, i got stuck with my foot and my "shoe" went off. I got it back and laughed about it, and then Algot started messing with me about it or whatever, i took the shoe and smacked him in the head with it (stupidest thing ever), and then he started going after me just to pin me to the lockers and push me. If i had a weapon, yes this is probably weird or maybe not, i wouldve used it, no kidding. I am so fucking tired of these guys rn.
+
+I did get my cable back that Oscar had forgot to give me, which was nice. 

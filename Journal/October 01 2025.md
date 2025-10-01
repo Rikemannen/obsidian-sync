@@ -1,3 +1,5 @@
+Fuck i deleted my dream entry, i did not know what if dreamt about except for dreaming about forgetting it, well not thats not a dream, idk.
+
 what
 Did this shit not save or what????
 iLL oops ill just write this again, we had history and we were talking about the swedish revolution, when the teacher talked about who was missing in a list of important people/companies the fire alarm went and we had to go, the teacher was like "NOO!", i also wrote my notes in markdown fsr and it looked much better (remember on paer)
@@ -8,4 +10,9 @@ Fucking hell they are knocking
 
 I dragged ignas's finger and twisted it and it cracked, and i the scratched him with my screwdriver the next tim he did it.
 Algot is now also being annying and ignas is touching me and valter is kicking me and they are both banging on the couch wall
-algot is so fucking annoying oml[BWe have art now and i am not happy o be sitting near the troublemakeers, i really wannaj just hurt them, im sorry but they fucking suckk oomg
+algot is so fucking annoying oml
+We have art now and i am not happy o be sitting near the troublemakeers, i really wannaj just hurt them, im sorry but they fucking suckk oomg
+
+I was unhappy there for a reason. Towards the end of the class ignas started talking about how he doesnt do anything annoying. That annoyed me so much i literally showed him the journal entries where i write about him and read them aloud. He just played it off or something I DONT EVEN KNOW and it didnt bother him whatsoever. He then told Vidar a bit after who said he never banged on that wall during German, which i dont have the details for but i HIGHLY doubt, hes just tryna save his ass. And idc if he has or hasnt, hes still a bitch.
+Anyways i also read one part where ignas had walked up to me and went annoying, i said he called me an idiot which tbf he didnt, and he knew, so wth man. I just want them to stop but how???
+Im gonna try starting to write as many details as i can about them just to make them fucking stop. From now on this journal is not gonna be entertaining. Or maybe ill just use another file, we will see. Why cant the teachers to something?

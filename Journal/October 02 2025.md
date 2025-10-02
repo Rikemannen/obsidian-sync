@@ -6,3 +6,5 @@ At home i fibbled around to try and get Fortnite working on my pc, i ended up in
 Oh and on the bus home i read some entries for Vidar and Sofia, it was fun.
 
 Oh idk if i mentioned this but ima get to sleep at my grandmas tmrw after the whole thing. Tmrw is a better day for sure. I cant wait!!
+
+Oh a d before i went to sleep today i found my Wii and the sensor bar, i tried building a battery supply for it but it never worked :(

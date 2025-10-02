@@ -1,0 +1,1 @@
+Idk, i remember something about trading stuff for like a chair. And being in school and there being stuff like pool with gold ball instead and a laser cutter in one room and well nothing else, but there was stuff.

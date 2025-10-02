@@ -4,3 +4,5 @@ During pe we didnt have to change, and we played either volleyball or pingpong t
 
 At home i fibbled around to try and get Fortnite working on my pc, i ended up installibg Chrome and using Xbox Cloud Gaming. I played with Melvin and then i went to eat meat and fries with sauce. It was good. Oscar also booked Laserdome today.
 Oh and on the bus home i read some entries for Vidar and Sofia, it was fun.
+
+Oh idk if i mentioned this but ima get to sleep at my grandmas tmrw after the whole thing. Tmrw is a better day for sure. I cant wait!!

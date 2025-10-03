@@ -1,3 +1,6 @@
+MOTHERFUCKER i dreamt about journaling :P
+God damn it this sucks.
+
 Holy no journaling, i brought my wii controllers to schol today and so far i have played bownling and baseball along with super mario. During german we had words to say, math was test, it was relatively easy, tech or mechanics or whaatever was just reading, and so i played super mario, and since i got my hoodie today i took the wii remote in my big pocket. I did do some aswell dw :P
 Anyways after lunch (schnitzel) i played golf with 3 guys from 9th grade, it was pretty fun, we only got time for one hole and i came 3rd, one 4th was also there and two 1st ig. During english we are making a preseentation about media and im writing about cameras in public spaces, and holy shit thiis is literally something i feel no matter if there are cameras or not. I do not like that :/
 

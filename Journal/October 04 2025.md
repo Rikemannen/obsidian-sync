@@ -5,3 +5,10 @@ Alright im now home from the laser tag stuff. It was kinda fun, and kinda boring
 Fuck uhh i took a regular pepsi to drink since we got that included and then we played 2 more games, switching teams this time. I was better that round, my points were like 199 first 900 second 3000 third and 1500 fourth, my mom drove me melvin and kasper there and melvins mom drove us and agnes home, at the end i also bought a like chocolate and musli bar or whatever for me and the other melvin.
 
 Im tired and my legs hurt, ima play FORTNITE right not roblox now with melvin and kasper and one other i forgot :D
+
+Yay we played Fortnite, after a while theo joined, we played (me and Melvin) two dips, we won both, he carried me. Then we played ffa all 4, then we started a squad game but i got kicked since Xbox Cloud Gaming does that after 60 min. They lost the round but got pretty far, then we all played box fights, Melvin left after a while cuz he got annoyed (i can relate) and i kept playing, i wasnt half bad.
+I then went and showered in like 3 min. I was pretty fast... I didnt wanna wake anyone :P
+Anyways i still doubt have my toothbrush (electric) so im using a manual one and i hate it, it makes me gag sometimes. And the toothpaste is disgusting.
+
+Anyways ima sleep and Lucid dream, well try to. Ima read that reddit post first. (https://www.reddit.com/r/LucidDreaming/s/2Z3qq20ldD)
+Until tmrw!

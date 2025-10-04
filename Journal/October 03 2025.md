@@ -40,4 +40,5 @@ Oh and btw i kinda wanna paint my nails, theyre kinda long and i want smth fun.
 My voice will probably be fucked tmrw lol
 I kinda wanna show people the journal... It would be fun, i think..
 Oh and thinking of what, i forgot.
- Anyways fun day, Laserdome tmrw ima sleep.
+During Swedish i sat with niva and those ofc, and somehow we came on the topic of males getting pregnant, and Jenny just could not see how a trans male could get a child. Anyways yea idk why i added this. Also they told me there that is look good with my hair on the my middle of my head to. Idk. Probably?
+Anyways fun day, Laserdome tmrw ima sleep.

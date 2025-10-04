@@ -1,0 +1,2 @@
+Im home now, uh i woke up at 11:30, well earlier but i fell asleep again, Melvin called me and asked if i was going with them over there. I dreamt about watching/being in a movie where there was a train that required fuel sometimes, and when it got it it could go really fast, there was a car for it to that could use its fuel to refuel. Idk anymore except that it collided with another train towards the end.
+Its rainy af rn aswell. 

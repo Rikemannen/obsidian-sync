@@ -1,2 +1,7 @@
 Im home now, uh i woke up at 11:30, well earlier but i fell asleep again, Melvin called me and asked if i was going with them over there. I dreamt about watching/being in a movie where there was a train that required fuel sometimes, and when it got it it could go really fast, there was a car for it to that could use its fuel to refuel. Idk anymore except that it collided with another train towards the end.
-Its rainy af rn aswell. 
+Its rainy af rn aswell.
+
+Alright im now home from the laser tag stuff. It was kinda fun, and kinda boring and kinda not fun. First round was meh, second was horrible, and i did something really fucking weird aswell, i *jokingly* kissed oscar on the side of his neck or whatever, it wasnt much but damn he joked about it, yeah my dumbass really didnt think there. Uh im so weird wth.
+Fuck uhh i took a regular pepsi to drink since we got that included and then we played 2 more games, switching teams this time. I was better that round, my points were like 199 first 900 second 3000 third and 1500 fourth, my mom drove me melvin and kasper there and melvins mom drove us and agnes home, at the end i also bought a like chocolate and musli bar or whatever for me and the other melvin.
+
+Im tired and my legs hurt, ima play FORTNITE right not roblox now with melvin and kasper and one other i forgot :D

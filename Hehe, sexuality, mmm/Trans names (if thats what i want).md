@@ -2,3 +2,4 @@ If i do find out that being a female is what i am, then ive got u covered girl: 
 - Chloe (randomly thought of)
 - Chelsea (same as above)
 - Kiara (same, i like it)
+- Clare 

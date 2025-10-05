@@ -68,3 +68,4 @@ No notes for a lil but damn was i depressed in [[September 26 2025]].
 [[September 28 2025]], eh nvm it isnt pepsi max
 
 Fuck, im done, ive checked through all entries, firstly reading a lot, then pretty much nothing, the later entries are larger. I do have an exposé ready now tho. Lets just hope all goes well. Time is 23:57, my mom is with my brother, both are sleeping and they have some woman talking and music. Ima drink and sleep, Ralph Wedersen's. (Auf wiedersehen, i say that sometimes idk why)
+I cant push, adding more for new commit.

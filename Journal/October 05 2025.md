@@ -12,3 +12,9 @@ Anyways i was really hungry the whole time and not in a good mood. Thats about i
 Oh and i read something today, some person said that they couldnt stop wondering if they were trans or not, and someone commented that cis people dont think like that, so they have to be trans *to some extent*. So i guess that applies to me aswell.
 
 Oh i just remembered something. I am sooo fucked for tmrw, i come to school at 8:50, everyone else is there earlier. Everyone else will know before i can stop it. I will have a shit day tmrw :D Fuck i am not looking forward to this one bit.
+
+Alright here is my plan:
+When i arrive i gotta do what i usually do, talk to Axel and Frans and just sit at a table looking at my phone. And if anyone asks just remain calm and be like "yeah why" (if its about orientation) and god forbid its about the other thing, remain cool like liquid nitrogen and just say "what about it, cant i be funny?" or something like "ur next" if its the right person. And oh holy mother of jesus, if they are homophobic about it,
+ok fuck that, this is kinda related ig, this journal has grown so god damn much it is impossible to find stuff. I wanna find where i say something like "if they are homophobic we will be finding out" after "i wonder if i can punch someone so hard they faint?". I mean that would **really** fit rn. Anyways tmrw might be a really fucking shit day, or just not. If he just shuts the fuck up, its fine. And ofc im doubting it, but i do really want to believe he wont. If he was in the same pickle im fairly sure he wouldnt. But oh well, *i did this to myself and i gotta face the consequences* but no, i really can not tell anyone in this fucking world why the hell i kissed a guy i know will tell everyone i did. Im gonna get bullied big time. Lord let him be sick at home tomorrow, if that so is the only wish i get in life. That would save my ass.
+
+Anyways gonna watch movie now.

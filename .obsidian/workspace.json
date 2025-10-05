@@ -4,11 +4,11 @@
     "type": "split",
     "children": [
       {
-        "id": "cec23335982d6500",
+        "id": "0da504220900bd04",
         "type": "tabs",
         "children": [
           {
-            "id": "813de4e77c263a13",
+            "id": "d5389077eaa99a8f",
             "type": "leaf",
             "state": {
               "type": "markdown",
@@ -53,7 +53,7 @@
             "state": {
               "type": "search",
               "state": {
-                "query": "paid",
+                "query": "",
                 "matchingCase": false,
                 "explainSearch": false,
                 "collapseAll": false,
@@ -94,7 +94,7 @@
             "state": {
               "type": "backlink",
               "state": {
-                "file": "Welcome.md",
+                "file": "Journal/October 05 2025.md",
                 "collapseAll": false,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -104,7 +104,7 @@
                 "unlinkedCollapsed": true
               },
               "icon": "links-coming-in",
-              "title": "Backlinks for Welcome"
+              "title": "Backlinks for October 05 2025"
             }
           },
           {
@@ -113,12 +113,12 @@
             "state": {
               "type": "outgoing-link",
               "state": {
-                "file": "Journal/September 29 2025.md",
+                "file": "Journal/October 05 2025.md",
                 "linksCollapsed": false,
                 "unlinkedCollapsed": true
               },
               "icon": "links-going-out",
-              "title": "Outgoing links from September 29 2025"
+              "title": "Outgoing links from October 05 2025"
             }
           },
           {
@@ -180,13 +180,14 @@
       "obsidian-git:Open Git source control": false
     }
   },
-  "active": "813de4e77c263a13",
+  "active": "79f7d127b12210c6",
   "lastOpenFiles": [
+    "Journal/September 26 2025.md",
+    "Journal/September 09 2025.md",
+    "Journal/October 01 2025.md",
     "Journal/October 05 2025.md",
     "Journal/October 04 2025.md",
     "Journal/October 03 2025.md",
-    "Journal/October 01 2025.md",
-    "Journal/September 26 2025.md",
     "Journal/September 27 2025.md",
     "Journal/September 28 2025.md",
     "Journal/September 29 2025.md",
@@ -208,7 +209,6 @@
     "Other stuff fun and boring",
     "Journal/September 15 2025.md",
     "Journal/September 16 2025.md",
-    "Journal/September 13 2025.md",
     "Hehe, sexuality, mmm",
     "Untitled 2.base",
     "Untitled 1.base",

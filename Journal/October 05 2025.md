@@ -18,3 +18,10 @@ When i arrive i gotta do what i usually do, talk to Axel and Frans and just sit 
 ok fuck that, this is kinda related ig, this journal has grown so god damn much it is impossible to find stuff. I wanna find where i say something like "if they are homophobic we will be finding out" after "i wonder if i can punch someone so hard they faint?". I mean that would **really** fit rn. Anyways tmrw might be a really fucking shit day, or just not. If he just shuts the fuck up, its fine. And ofc im doubting it, but i do really want to believe he wont. If he was in the same pickle im fairly sure he wouldnt. But oh well, *i did this to myself and i gotta face the consequences* but no, i really can not tell anyone in this fucking world why the hell i kissed a guy i know will tell everyone i did. Im gonna get bullied big time. Lord let him be sick at home tomorrow, if that so is the only wish i get in life. That would save my ass.
 
 Anyways gonna watch movie now.
+
+Alr ill just start this last little snippet of today with saying that i am sooo fucked for tomorrow. ***~~HOWEVER~~*** I can not tell you a single time where he has done something like this before. Sure he is the kinda person who will, but also, it wont really be the first thing he thinks of, unless those fucking sons of bitches in my class ask how his "birthday party" went. And ive been with them for so long now, that i know that its not gonna be the first thing they think of in the morning. Theyre just gonna play Clash Royale and be bitches about something else. Heck somebody will even sleep in. So im kinda optimistic about all this. But i do fear the worst.
+
+Oh and also i forgot to add yesterday that we talked a lot on the way there about school and the annoying guys. Ill spare you the details but we did, it was fun.
+
+Wait omg nuclear solution:
+If they start doing shit, i have shit on them. I have some vids and screenshots and heck even my fucking journal. Ill just release it all. Not that theyd care anyways but i hope it would give them a bad image. A grand exposé if you will hehe.

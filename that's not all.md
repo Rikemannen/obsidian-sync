@@ -15,3 +15,34 @@ Now when the teacher left all the guys in the class are going knocking. LITERALL
 Bro the guys are laughing now (not much and the teacher is here) i just want them to get kicked out so bad oml. Wait, they asked for tape earlier to fix books, could it have been a way to get hm out of here? Bro they are so stupid oml.
 Now when the class next to our classroom have ended, they were knocking at the wall, and so the guys here went crazy shouting and we cant hear the other people talking, bro i hate this so muchh :(
 Class is over now!!
+## *September 26 2025*
+We have english now and ignas ( ithink not even i know anymore) played a mtorocycle game on full volume and the teacher got mad, and just now he had yt with a vid aswell playing `._.` And the teacher got mad at erik for the first few things. There is someone else doing something behind my back, i think its Valter, and melvin accuidentally played something too (he apolzgized and the teacher understands) I HATE THIS!!!!!!!!!!!!!!!!!!!!
+Melvin had some problem with his computer, i asked what and the teacher was like "NO, you do your stuff" like stfu im tryna help here...
+They played sounds again and the teacher is furious now CAN THEY STOP????????????????????????????????
+We are writing stuff for our like things later where we talk with teacher and parets, idk what to write on first question, most others i know but not first one :(
+The other guys are getting like walls to put up ( i got one too :D) and valter yet again cant let his computer be alone, he keeps playing sounds that arent even funny, fricken fart sfx and facetime calling noise or whatever
+Now that im writing this i kinda wanna add that i dont really like asking questions in history and wahtever cuz the teacher isnt so nice tbh.
+
+Ill just say when they do it now, im pretty sure they know im writing cuz they do that but idc:
+Valter played twice :(
+some guy on the other side with anime (questionable) song like wtf
+valter fart sound 
+Some sound that is present in gordon ramsay kitchen hell (only source i know :P) and facetime thing, probably ignas
+They played some 67 sound (I FUCKING HATE THAT "MEME") and the techer got mad (they being erik, i think cuz he laughed most)
+Valter played facetime sound
+ignas is now visitng valter, teacher = mad
+Valter fart
+Valter left :D (hes coming back tho)
+Ayy there hasnt been anything for a lil while now :D
+Im tired of doing exercise stuff now omg
+Ignas is back from the toilet :/
+Valter plays some tone, the one you use to "blur" speech
+Ignas played bruh
+and another thing idk
+Ignas came up to me and asked what i was doing, i told him to leave cuz he is annoying, he told me "its not only me" fucking idiot :P
+he is playing sounds now, cant they just fucking stop???
+They are laughing fsr now
+They played an iphone pic sound whatever
+Ignas left and it's been quiet for some time now.
+Teacher left and vidar is the only one making sounds, vocally tho.
+Teacher's back with ignas :/

@@ -25,3 +25,22 @@ Oh and also i forgot to add yesterday that we talked a lot on the way there abou
 
 Wait omg nuclear solution:
 If they start doing shit, i have shit on them. I have some vids and screenshots and heck even my fucking journal. Ill just release it all. Not that theyd care anyways but i hope it would give them a bad image. A grand exposé if you will hehe.
+
+Oh my god i had more than i thought, i have when they call me gay (ironic) and fat and say i have to kill myself and asking how to hack the school computers and sending "porn" (it includes that stuff but not irl, still counts) in the group chat? And like i said my journal where i... journal :P
+Oh and i did do some research, you can not just knock a guy out like in action movies. A simple punch from a fairly weak 14 yr old wont knock someone out, suprise!! Fuck it lemme make a collection of shit to expose cuz why not idrgaf yk.
+
+Unrelated but oh my fucking god i found it, [[August 25 2025]], block 8, it wasnt pepsi max 😿. That is so canon wth. Also towards the end of that, that is so real, everyone will know before summer next year... Everyone will know tomorrow. Nah but shit is close. And i cant *not* wonder if i am the only one? I mean i think that therian in 7th grade is a lesbian, but i might be wrong. Anyways, back to scraping 60 entries for expose material.
+
+[[August 27 2025]] at home part, i just wanna change friend to "friend" or just a guy in our class.
+
+[[August 28 2025]], yea that one wasnt really pepsi max tbh 😿
+
+[[August 29 2025]] idk why i said 9th graders are horrible, they literally just arent, they are so cool fr.
+
+[[September 01 2025]] `._.` just `._.` (the G part) and ofc the little list. minor compared to what is going on now
+
+[[September 02 2025]] OMG did i forget to update? She doesnt like me anymore (thank god, sorry but im so grateful, she will know why soon enough)
+
+[[September 04 2025]] damn my anxiety is bad lmao
+
+Fuck i think my brother has migrane, hes saying ouch and stuff and turning and whatnot omg i feel so bad, ima stop journaling just a sec brb, the time is 22:45 btw

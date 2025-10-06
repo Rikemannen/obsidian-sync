@@ -44,3 +44,28 @@ Unrelated but oh my fucking god i found it, [[August 25 2025]], block 8, it wasn
 [[September 04 2025]] damn my anxiety is bad lmao
 
 Fuck i think my brother has migrane, hes saying ouch and stuff and turning and whatnot omg i feel so bad, ima stop journaling just a sec brb, the time is 22:45 btw
+
+[[September 04 2025]] i just realized i have to remember 8 German States for our test!!! (I set a reminder dw)
+
+On a side note, why tf is the exposé file in my repo now??
+Holy shit i just clutched putting my phone away big time there, my mom came to my brothers room, he says he feels like he is gonna throw up, ima shut my lights off at 23:00 cuz it aint dark in here. Nvm no i wont.
+
+[[September 05 2025]] block 10, fomo
+
+[[September 06 2025]] first time linking future entry!
+
+I just had a special little feeling, i felt like it would be nice of everyone knew about me, in a way that would allow me to express myself freely. I wish everyone would accept me...
+Forgot to mention, we ate pizza for dinner :P
+
+[[September 08 2025]] that knife dream made me remember that game where there is a spinner that decides if u fight someone, blood drops etc and with rooms and whatnot, i wanna play that again... Also read more of it, im so desperate lol. That reminds me, i bought more of those sticks today from the new amart in Helsingborg. I got 2 chocolate ones. Packs not Singles ofc.
+
+God i keep making sounds with my phone case on accident, and my mom is with my brother now playing some weird music thats supposed to help, i turned off the vibration when typigb on my keyboard, it made some sound. Omg he threw up and is still going, not anymore holy disgusting.
+
+Wait where tf did the file go??
+
+No notes for a lil but damn was i depressed in [[September 26 2025]].
+
+[[September 28 2025]], eh nvm it isnt pepsi max
+
+Fuck, im done, ive checked through all entries, firstly reading a lot, then pretty much nothing, the later entries are larger. I do have an exposé ready now tho. Lets just hope all goes well. Time is 23:57, my mom is with my brother, both are sleeping and they have some woman talking and music. Ima drink and sleep, Ralph Wedersen's. (Auf wiedersehen, i say that sometimes idk why)
+I cant push, adding more for new commit.

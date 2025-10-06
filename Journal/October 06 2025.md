@@ -16,3 +16,6 @@ Anyways that's about it for now, im gonna ask my dad about volleyball.
 I just wanna add, holy shit am i happy that everything i was planning for yesterday wasnt required. That wouldve sucked.
 
 Guess what i just did... I sent an email to the volleyball people asking if i can play there. Holy shit this is fun. My mom reacted on it being a group of only girls, but wike was in it before and its just a coincidence ig. And *i mean* i kinda wanna be tha- ill stfu you get it it doesnt matter.
+
+Not much more for today. I wrote a simple journal statistic counter, i forgot results tho, it checks file size, word count and paragraph count. I also did some exercises on exercism and then did some bugfixes and changes on my site.
+Im looking forward to tomorrow. But now im gonna sleep. I hope all goes well on the test. Oh and ill try to Lucid dream, this time making alarm volume still making it gradually go up. I really wanna do it. Oh and ive also relrganized my home screen a little. Its not good rn but it will be later :P

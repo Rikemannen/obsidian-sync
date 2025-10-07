@@ -10,3 +10,15 @@ Oh and they also want to go to the shopping centre with me and shop stuff, i did
 Omg i checked my mail and they say that i can come to the volleyball today at 17:00, holy shit this is so fun.
 
 Yay ive now played that for 1 hour. It was fun, i talked with the guy who i emailed first, he just told my to play with the team and to talk with them. At the start i sat on the floor, major mistake cuz you shouldnt basically, well i did notice myself but anyways. We played dip ball or whatever and then did some passes. I didnt really know what to do half the time but i managed. After that we served, the trainer said i was good. And lastly a match, i missed one serve from the other team, i served some times and it went well, i also saved and shot some, i was good basically. Ill basically come next time aswell.
+Oh and one girl shot a ball on my ear, it didnt hurt tho, but it was funny.
+
+Anyways in Thursday ill go to the pancake place (idk what to call it, yk after school) and then take yellow bus to the Sporting center.
+
+Other stuff today:
+We played basketball during pe, the guys were pretty bad tbh, well ok not really but they barely passed the ball, i shot like twice and missed. The guys also tried to shoot from 15.38 metric miles away which missed, well except for one but it was luck. God i wish i could play with the girls. Well tbh i believe that before summer next year ill be trans. My friends will basically force me to be part of their group now as a girl... I dont mind :3
+
+Oh and someone dropped a plate and glass during lunch, i sat alone during lunch since i got the fuck out of the changing room since a fight was almost starting. Well you can read further up about it, the stuff after that is.
+
+Fun day, i helped dad with food, its really good, yk sausage with sauce and rice. Until we meet again.
+
+Hello again 5 seconds later, i just wanted to say that people are "worried" about writing about their work days next week since we have been assigned to write a text about it in Swedish, Meanwhile ive done this for every day the past 2 months. And no, i wont write in Swedish, dont ask me why.

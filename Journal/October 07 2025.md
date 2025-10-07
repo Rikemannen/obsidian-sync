@@ -7,3 +7,4 @@ Oh my fucking god, i left pe early since they were anooying there and sat alone 
 Oh and right before rgerman started i pointed at the posters i saw this morning and told niva to ook, she understood and like piinted at me happily or wahtever yk.. :D
 Oh and Arvid knocked on the door/wall idk ti the other class, and hans caught him! he got really mad and arvid got schoked and stopped.
 Oh and they also want to go to the shopping centre with me and shop stuff, i did mkinda mention that right? Anyways crazy coincidence with this and morning lol.
+Omg i checked my mail and they say that i can come to the volleyball today at 17:00, holy shit this is so fun.

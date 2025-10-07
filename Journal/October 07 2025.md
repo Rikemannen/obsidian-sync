@@ -22,3 +22,9 @@ Oh and someone dropped a plate and glass during lunch, i sat alone during lunch 
 Fun day, i helped dad with food, its really good, yk sausage with sauce and rice. Until we meet again.
 
 Hello again 5 seconds later, i just wanted to say that people are "worried" about writing about their work days next week since we have been assigned to write a text about it in Swedish, Meanwhile ive done this for every day the past 2 months. And no, i wont write in Swedish, dont ask me why.
+
+I just showered and im gonna play Fortnite with Melvin :)
+Idk why add but why not
+We won our first match and lost the rest, we also played minigane boxpvp
+
+Ima sleep now, not having to shower rn is awesome.

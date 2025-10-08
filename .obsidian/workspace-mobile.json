@@ -13,12 +13,12 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Journal/October 07 2025.md",
+                "file": "Journal/October 08 2025.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "October 07 2025"
+              "title": "October 08 2025"
             }
           }
         ]
@@ -49,12 +49,12 @@
         "state": {
           "type": "search",
           "state": {
-            "query": "",
+            "query": "Ball ",
             "matchingCase": false,
             "explainSearch": false,
             "collapseAll": false,
             "extraContext": false,
-            "sortOrder": "alphabetical"
+            "sortOrder": "byModifiedTimeReverse"
           },
           "icon": "lucide-search",
           "title": "Search"
@@ -86,7 +86,7 @@
         }
       }
     ],
-    "currentTab": 0
+    "currentTab": 1
   },
   "right": {
     "id": "8adfb142d447f323",
@@ -162,16 +162,22 @@
       "obsidian-git:Open Git source control": false
     }
   },
-  "active": "7f10b01c50575f59",
+  "active": "e6613b29c53f59e2",
   "lastOpenFiles": [
-    "/Journal/October 07 2025.md",
-    "/Journal",
-    "Journal/October 06 2025.md",
     "Journal/October 07 2025.md",
-    "/Journal/October 06 2025.md",
-    "Journal/October 05 2025.md",
-    "Journal/October 04 2025.md",
+    "Journal/October 08 2025.md",
+    "Hehe, sexuality, mmm/Fuck it, journal².md",
     "Journal/October 03 2025.md",
+    "Hehe, sexuality, mmm/Trans names (if thats what i want).md",
+    "Journal/October 05 2025.md",
+    "Journal/October 06 2025.md",
+    "/Journal/October 08 2025.md",
+    "/Journal",
+    "/Hehe, sexuality, mmm/Trans names (if thats what i want).md",
+    "/Hehe, sexuality, mmm",
+    "/Journal/October 07 2025.md",
+    "/Journal/October 06 2025.md",
+    "Journal/October 04 2025.md",
     "Journal/October 02 2025.md",
     "Journal/October 01 2025.md",
     "Journal/September 30 2025.md",
@@ -186,12 +192,6 @@
     "Journal/September 21 2025.md",
     "Journal/September 20 2025.md",
     "Journal/September 19 2025.md",
-    "Journal/September 18 2025.md",
-    "Journal/September 17 2025.md",
-    "Journal/September 16 2025.md",
-    "Journal/September 15 2025.md",
-    "Journal/September 14 2025.md",
-    "/Hehe, sexuality, mmm",
     "Other stuff fun and boring",
     "/Other stuff fun and boring",
     "Untitled.base",

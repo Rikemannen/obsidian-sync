@@ -51,3 +51,13 @@ But to be real i dont want to be a girl, i want to present as one but not be one
 # 2 oct
 God im so tired of this. I hate it so much. I have been feeling dysmorphia today a bit and i just dont like my guy features. I just wanna be a silly girl. Yet i still kinda dont. Dödpywhwjdkf av ibo:)
 Oh and my dad told my mom to check for booking for barber or whatever. I dont like this. Im gonna come out soon, i gotta talk. But i feel like people will laugh. I gotta include that i cant stop thinking about this and that its making me sad or smth.
+
+# 8 oct
+I havent added the entries where i came out, read [[October 03 2025]] and [[October 07 2025]]. (Veronika doesnt know im trans, not from me atleast) And there you fucking go. I said it:
+>*...doesnt know im trans...*
+If **that** doesnt confirm it i dont know what does.
+Yeah im trans, i love thinking about it. Im just wondering how ill tell the others that im not gay but bi, ill just wait for them to mention anything related and ill just say something like "oh actually im more so bi than gay, i just said that so youd understand." Which is a pretty good plan imo.
+
+Its just so fucking nice getting this huge weight off my shoulders. Who knew me questioning whether i was a femboy turned into me being trans eventually. Yeah i said it, and ill say this:
+The next time they bring something related up, i will ask them, "should i go on E?" or something yknow. Ill just ask them if i should do it. And if they say yes, ill come out to my mom. Yeah fire plan but ill do it. Oh and names, i really wanna brainstorm names with them. Stacy (as seen on [[Hehe, sexuality, mmm/Trans names (if thats what i want)|Trans names (if thats what i want)]]) is the best one so far. I like an English name even if im in Sweden. And holy, how will my cousins react, when they actively (well sometimes, *rarely*) joke about some enby person and their name change. Idk if they deadname then but i think not tbh. Anyways i just wanna add, theres not really anything about my voice anymore. I kinda found out how to train it and well i dont really sound like a man, more so a teenager (duhh).
+Ima check out done voice training stuff cuz y not.

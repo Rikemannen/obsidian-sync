@@ -3,3 +3,4 @@ If i do find out that being a female is what i am, then ive got u covered girl: 
 - Chelsea (same as above)
 - Kiara (same, i like it)
 - Clare 
+- Stacy (i just came up with randomly it sounds good :P)

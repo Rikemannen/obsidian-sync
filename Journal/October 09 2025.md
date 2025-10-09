@@ -15,3 +15,12 @@ We had math, we switched places again since his app could like have two classroo
 Math was fun aswell, it wasnt *that* loud in the classroom.
 
 Oh my god i didnt mention, during lunch i sat with niva and jenny, it was fun, anyways they said something about me being gay and so i got to correct them :D, niva immediately picked it up yk, but jenny was in denial fsr. Idk if jenny knows im really serious?
+
+Alright im home from volleyball now, mom came a bit late and i kinda forgot to go outside so we just barely made it, Niva came a bit late due to the bus (it was planned). We started by doing some sack ball thing where we made 3 teams and there were winners, servers or smth and out. Servers served to Winners, and if Servers won they moved to Winners, Winners out and out → Servers, if winners win, Servers ←→ Out and Winners get a point. My team did pretty good. Then we did some game where you started with one of the three, lets say kicker, so as kicker you threw a ball to a server and they passed back and you kicked it over (hand over net yk) and then someone tries to block on the other side, blocker. And then you switch place:
+Kicker → Server → Blocker → Kicker...
+And we switched from 5th to 1st mid game (left to right/right to left idk)
+We then did serving, overhand or whatever, i got help from someone else and the second coach, i now *understand* how to do it, but im not perfectly good at it.
+We then did a match, i did some good shots/passes.
+And on the way home my mom asked me if there were any cute girls there `._.` I just said that i dont really think about it, and tbh i wouldnt say so. I mean i kinda prefer guys but i am bi so i need to say my opinion yadda yadda.
+
+Thats my day so far, ima read about voice training now. I cant stop thinking about just telling my friends "listen to this" and just talk in a voice so feminine theyll fall in love with me (not really but yk really good is what i mean).

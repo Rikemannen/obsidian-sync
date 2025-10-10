@@ -10,3 +10,4 @@ I just started rewriting my text in english from scratch, and holy shit did it t
 >
 I let agnes and niva+sofia read my text and they said it was good. Niva and sofia were emphasising the synonyms i added *very* much, such as "modern society", "lets create a scenario"
 THey do think its good thos :>
+test!

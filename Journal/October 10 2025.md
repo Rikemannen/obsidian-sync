@@ -5,3 +5,8 @@ We then had tech, we had a test which was prettty easy. I got done pretty quickl
 I then came in the middle of swedish, and we did the book stuff, i didnt do much since it was almost ending. Then we ate pasta and paprika sauce for lunch. After lunch i played volleyball with melvin alwin niva jenny veronika (she was here today) and adam, aswell as sinna (nivas sister, idk if i mentioned) and her firned but they left, it also started raining a bit.
 Now we have english and once again ignas is behaving like a fucking child, he took headphones and is watching ai videos on his laptop?? hes a joke
 Oh and we also checked results for the truman show text we did and i along with some others like melvin got A, ignas got C, he just doesnt fokus correctly. OK i now see that it isnt ai video hes watching but wth doesnt matter.
+I didnt sit with niva and veronika today in the food court, and it was really dry between me alwin and melvin... so there is a pretty clear reason as for why im sitting with them :P
+I just started rewriting my text in english from scratch, and holy shit did it turn out better and longer, just focusing on one thing excpt for two. I cooked real hard with this one:
+>
+I let agnes and niva+sofia read my text and they said it was good. Niva and sofia were emphasising the synonyms i added *very* much, such as "modern society", "lets create a scenario"
+THey do think its good thos :>

@@ -33,3 +33,7 @@ Oh well it was good while it lasted. I loved that game so much. I never liked it
 Dont ask why but i just came up with something randomly while playing ragdoll universe (not related).
 >*Queue the best, kill the rest*
 Basically it means to get the best people in a group and just not take the rest, queue the best, take the best, kill the rest, remove the rest. Very good imo.
+
+I forgot to mention yesterday that the girls who want engraving said it was too expensive and so i dont gotta do that anymore. I actually feel pretty relieved.
+
+Ima sleep now, yes ill try to Lucid dream, this time getting up and doing something.

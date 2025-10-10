@@ -12,7 +12,8 @@ Especially those that itch (me) or stick out (others)
 #### Small remains
 Plates that are scraped clean with a fork or something but still have remains on them that cant be "picked up", i always get the same picture, a plate with a very thin layer of ketchup on it. A sub-thing to this is licking cutlery, mainly plates (might go into next entry).
 #### Cutlery
-This doesnt trigger anything per say (well a little but not the main thing) however i refuse to:
+This doesnt trigger anything per say (well a little but not the main thing) however i refuse to/dislike:
 - Use the knives at home that arent meat knives
 - Drink out of the glasses in school (i have actually started doing this :D)
 - Put cutlery against my lips
+- Big spots with fat or whatever on glasses after people have drunk

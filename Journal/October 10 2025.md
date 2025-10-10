@@ -24,3 +24,11 @@ Im home now, i went to the store with Niva and Veronika just before going to the
 On the bus a couple of people asked for some and i just said ill eat them at home. At home im eating a pizza. 
 
 I also wanna mention that during the vision test i got a stick to cover one eye. When i did it myself it went well, however when the person in there did it i twitched like crazy. I mean i cant help it but why do i do it? She also put a lamp in my face and made me follow a ball on a stick (not at the same time).
+
+[[October 05 2025]] yk the game i talked about here, yeah good news, i kinda found it (https://www.roblox.com/games/9559194006/RIOT-social-experiment), bad news, the devs havent rated it and so it remains unplayable :((((
+Oh and to top it all off, the main dev is dead D:
+Oh well it was good while it lasted. I loved that game so much. I never liked it tho (as in clicking the button on roblox, ofc i liked the game yk) so i cant proove i played it. Eh, to whom do i have to anyways?
+
+Dont ask why but i just came up with something randomly while playing ragdoll universe (not related).
+>*Queue the best, kill the rest*
+Basically it means to get the best people in a group and just not take the rest, queue the best, take the best, kill the rest, remove the rest. Very good imo.

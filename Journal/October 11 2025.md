@@ -8,6 +8,21 @@ Alright its now 17:30, so far today i have eaten 6 small baguettes with cheese a
 
 I also thought about watching the Truman show or superintelligence, but since my mom was home we did other stuff.
 
-Engraving
-Meta
-Movie, naked gun and superintelligence 
+Alright its evening now, i have just watched the naked gun 331/3, it was pretty funny, i ate a little bit of my chocolate crackers, not much just like 5, and i also found out that the audience slapping their forehead meme thing is from that movie, i laughed when it came up.
+
+Before that i tried to watch superintelligence again, i found one server which worked but had texting, the rest of the ones i tried were laggy. And before i could change my mind my mom came and wanted to see another movie, and it ended up being the aforementioned.
+
+I have also been out engraving, and well i got lasergrbl working in a vm connecting to my engraver via wifi!! I had to use some host only interface and bind that to something in virtualbox, and then run these commands:
+`sudo sysctl -w net.ipv4.ip_forward=1`
+and
+`sudo iptables -t nat -A POSTROUTING -s 192.168.56.0/24 -o wlp2s0 -j MASQUERADE`
+although i dont really think that was necessary since the laser was on 192.168.5.1 and not 192.168.56.*
+Anyways my mom wanted me to make a christmas thing but lasergrbl said it would take 3.5 hours to burn. She said to halve the size and that got it down to 1 hour. And then i also figured out that those times were with the wrong settings. I changed to the correct ones (i had mixed F and S, feedrate and strength) and the smaller one was now gonna take 4 hours, the bigger one, 9 hours... (150mm and 300mm respectively). I ended up making a 100x100 one on a smaller piece with other settings, took 5 minutes. The engraver's power button is also broken, idk why it is but when you click it nothing happens, it blinks and all when on but you gotta click like 8 times to make it actually register a click. Atleast it works tho... We (i, most likely) have also lost the keys to it, but that doesnt really matter.
+
+Next thing, I got a task notification about changing my meta (god i hate that name) username cuz i did it wrong 6 months ago `._.` so ima do that tmrw or someday.
+
+My mom also said that we are going shopping for working clothes tmrw.
+Oh and i cant wake up from my alarm to lucid dream anymore, i just sleep through it!! Ill change the sound and wear my watch today but that sucks :/
+
+Thats all folks, for now atleast.
+(PS: I made an entry in [[Fuck it, journal²]] today!)

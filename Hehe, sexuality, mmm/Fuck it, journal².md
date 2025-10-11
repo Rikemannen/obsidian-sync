@@ -61,3 +61,22 @@ Yeah im trans, i love thinking about it. Im just wondering how ill tell the othe
 Its just so fucking nice getting this huge weight off my shoulders. Who knew me questioning whether i was a femboy turned into me being trans eventually. Yeah i said it, and ill say this:
 The next time they bring something related up, i will ask them, "should i go on E?" or something yknow. Ill just ask them if i should do it. And if they say yes, ill come out to my mom. Yeah fire plan but ill do it. Oh and names, i really wanna brainstorm names with them. Stacy (as seen on [[Hehe, sexuality, mmm/Trans names (if thats what i want)|Trans names (if thats what i want)]]) is the best one so far. I like an English name even if im in Sweden. And holy, how will my cousins react, when they actively (well sometimes, *rarely*) joke about some enby person and their name change. Idk if they deadname then but i think not tbh. Anyways i just wanna add, theres not really anything about my voice anymore. I kinda found out how to train it and well i dont really sound like a man, more so a teenager (duhh).
 Ima check out done voice training stuff cuz y not.
+# 11 oct
+Today is national coming out day?? Yeah well i didnt :P
+Anyways i tried talking high pitched today, it sounded, well, high pitched. Idk what to do but its pretty safe to say that im bi and trans. Or atleast genderfluid. I do wanna do voice training but my ass is so paranoid for some fucking reason.
+I really don't know what is stopping me from committing? (to becoming trans not suicide :P)
+
+What i want in life:
+- A partner, gender doesnt matter as long as they are:
+	- Nice
+	- Accepting
+- Girl clothes:
+	- Oversized hoodie, zip up or pull over doesnt matter but i think i actually prefer zip up
+	- Skirt
+	- Thigh highs (yes i know this is more femboy, idc)
+- Long hair
+- A girl voice
+And most importantly:
+- Hrt
+
+Goodnight.

@@ -79,4 +79,6 @@ What i want in life:
 And most importantly:
 - Hrt
 
-Goodnight.
+Oh and let me tell you about my silly little rule i made just now. If anyone asks about me being, well anything, ill answer truly, assuming there is no risk of unwanted attention.
+
+Goodnight. (To whom it may concern)

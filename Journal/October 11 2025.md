@@ -7,3 +7,7 @@ Holy shit that is the longest dream entry yet, right??
 Alright its now 17:30, so far today i have eaten 6 small baguettes with cheese and marmalade for breakfast, macaronies with meat sauce from yesterday (not the regular, its mid tbh). And i also watched some youtube, the entire wall e movie. And i am now our in the workshop with my mom. The laser goggles they bought are not rated for use with the laser on 100%, but they are good for locating and stuff yk. So ive been engraving (one test piece...) and im now trying to connect the engraver over wifi through the vm. The reason i can type this is because im shitting rn.
 
 I also thought about watching the Truman show or superintelligence, but since my mom was home we did other stuff.
+
+Engraving
+Meta
+Movie, naked gun and superintelligence 

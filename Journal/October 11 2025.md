@@ -2,4 +2,8 @@ I dreamt about a competition of sorts where using magnets underground would give
 I also dreamt about eating oranges with my cousins and their mom asking if someone had taken an orange from someone else, i said i had given that person one (slice not fully orange)
 Now that i think of it i also had a third one of holding the shut off button on my phone and asking it to screenshot something as to not get detected. Idk what tho...
 
-Holy shit that is the longest dream entry jet, right??
+Holy shit that is the longest dream entry yet, right??
+
+Alright its now 17:30, so far today i have eaten 6 small baguettes with cheese and marmalade for breakfast, macaronies with meat sauce from yesterday (not the regular, its mid tbh). And i also watched some youtube, the entire wall e movie. And i am now our in the workshop with my mom. The laser goggles they bought are not rated for use with the laser on 100%, but they are good for locating and stuff yk. So ive been engraving (one test piece...) and im now trying to connect the engraver over wifi through the vm. The reason i can type this is because im shitting rn.
+
+I also thought about watching the Truman show or superintelligence, but since my mom was home we did other stuff.

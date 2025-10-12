@@ -82,3 +82,9 @@ And most importantly:
 Oh and let me tell you about my silly little rule i made just now. If anyone asks about me being, well anything, ill answer truly, assuming there is no risk of unwanted attention.
 
 Goodnight. (To whom it may concern)
+# 12 okt
+Fuck this omg what, i saw this post, and before i read the bottom text i got that stomache feeling basically meaning excitement or something i "feel a connection to". Im so not cis omg
+https://www.reddit.com/r/CountOnceADay/s/6QelpQeGMw
+
+I played around with my hair a lil just now and took a selfie in the half dark im in. And idk but i kinda look fem with my hair >////<
+Oh and i put those images in the locked folder in the images app, and opening that i also found my old mirror selfies i took at the start of summer break, sorry but i look ugly af. I do not **fit** in short hair whatsoever. I DONT WANT TO CUT IT!!! i gotta tell my mom oml

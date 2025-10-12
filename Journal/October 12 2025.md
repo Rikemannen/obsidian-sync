@@ -11,3 +11,7 @@ In my days of journaling i made some promises about future entries that never ha
 Ill add more later maybe, anyways we are on our way home, i have now gotten pants and a shirt to have outside my training clothes, shoes, working clothes and a subway sandwich. I also got to shop stuff for next week when i go working. 
 Im also annoying af when we are away, but hate when others are. Why?
 Anyways i had to skip volleyball today cuz we were away 😿
+
+Holy no journaling!
+We also went to buy pumpkins, at home i did pretty much nothing first and then went to mow grass, it took like 45 min cuz i only did the large lawn and the alleyway and its houses yk. Ive then been scrolling reddit and yt in the couches. Im so tired, and we havent eaten dinner yet. Idk what to do rn, im bored. Ive thought about making an inventory management system for a retail store just to have something to do lol.
+Fuck it im watching a movie lmao.

@@ -11,3 +11,10 @@ Idk what we are gonna do with the radio stuff, yk water measuring and whatnot bu
 
 Oh and the smoothie i bought yesterday is pretty damn good.
 I hope this is good so far for a journal about the days :P
+
+After that i went with Anna to refill the sodium bicarbonate (not baking powder) and change one battery for the fencing. And after that we thought we saw a sheep that had escaped, but it wasnt :)
+We then went back home, talked to the golf guy and i said that i know who vidar is who was at the golf place. We/they then talked about the shitty regulations they set up and how he always gets a complaint because he sets stuff theyre not allowed to do, so now they just say no to all. Btw Vidar had driven a golf cart, so they didnt really follow it lol. I mean i got to drive:
+- Golf cart
+- Fourwheeler or whatever
+- A fucking meat mill
+Anyways im home now if you couldnt guess, idk what to do next.

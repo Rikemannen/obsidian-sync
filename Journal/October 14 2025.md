@@ -18,3 +18,14 @@ On the way out we talked with Niva and her dad about driving together or whateve
 On the way home and there *and at home* i talked a **lot**. I just couldnt shut up lol. Oh and on the way there she also said that its "good" or whatever i dont remember, that it didnt matter if i was in a group full of girls and that i could "ignore" it, again i dont remember exactly. And the look i made (without her seeing) was pretty revealing of why that was. I did think about coming out but nah. Idk why i didnt really.
 
 Anyways i have showered and eaten chili con carne and talked and im journaling. Ill stop now tho. Ok bye until later.
+
+Ive now solved an issue where network manager didnt work on my pc and so i had to use a live iso. I then made .local addresses work on my laptop pc and pi, pi already worked but i changed the address to pi.local
+I also set up openwebui and ollama to use if i want. And im thinking of putting a smart outlet or whatever for my pc and make it start on ac return or whatever so i can wake-on-lan-without-lan.
+I also listened to some music cuz otherwise i wouldve died of boredom.
+
+Also my mouth hurts like crazy, i have bitten my tongue as if its chewing gum, gotten a blister, and my earn hurts in sync with all this somehow.
+
+Ima go sleep now, im tired af. Goodnight.
+
+Also i saw a post a while ago about liking wheatley in portal 2, but they misspelled wheatley as whetl, that sounds so funny i gotta mention it.
+-Whetl lover ❤️

@@ -29,3 +29,5 @@ Ima go sleep now, im tired af. Goodnight.
 
 Also i saw a post a while ago about liking wheatley in portal 2, but they misspelled wheatley as whetl, that sounds so funny i gotta mention it.
 -Whetl lover ❤️
+
+Oh and i also discovered that you dont have to click to stage files instead you can just commit and push immediately. Atleast on phone.

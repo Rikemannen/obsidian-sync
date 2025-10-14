@@ -1,0 +1,10 @@
+I woke up and didnt write down what i remembered... But i do remember dreaming about mark Zuckerberg calling me and then having me pick an important person in my life to call next, Yeah idk. I do remember not being able to pick who i wanted.
+
+We now have lunch. The day started with me going out and doing the morning routine. I went a little wrong tho and missed one group, so i walked on the side of the fence to check them. When i was done i took the same way back to avoid the road, and then me and Adam went to the mountain to check the sheep cows and goats. It was hell walking since my shoes made my ankles hurt. We also measured a shed which wasnt as bad lol. And now we are here, at "home" eating, i brought fettucine alla meat sauce or something.
+The morning routine took less battery on the golf cart today, i wonder if thats cuz im light unlike the adults. I also sent a vid of me driving to Melvin cuz y not.
+
+Holy shit this meal was good.
+
+We sorted sheep after that and when we were taking the last few in a small pasture or whatever one had escaped since the fencing was broken. We moved the last few, and they were sorted by who was gonna participate in some competition and some who werent. Me and Adam then went to fix the fencing. It went well. But then i remembered that i have volleyball training. So i told him and he said hed drive me home. And so he did.
+
+At home i was alone for like 3 minutes and then my mom came. And she wondered why i was home, i told her and she showed me that i was an hour early. I went at around 15:10, one hour early, when i didnt have training until 17:00... And now im just so mad at myself for not checking, i didnt even tell them beforehand... Im so fucking irresponsible. Oh well ima eat something now and get even more mad. The others are outside chasing geese, theres like 389 of them.

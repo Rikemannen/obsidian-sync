@@ -24,3 +24,5 @@ Something i thought of today is, what hobbies does my brother have? I like compu
 Oh and i also remembered that i havent read the last 2 magazines ive gotten. That sucks. I guess i will after work tmrw. Dam i never thought is wrote that. Hey listen, it doesnt matter how much or how little i do it, ill journal everyday, until my 18th birthday, and keep on doing it til i get married etc etc. I love this so much, yet its kinda annoying sometimes cuz i feel like i have to do it. Ima use my "new" statistic program to make a trend diagram of my journal entry lengths. Thatll show how it changes (duhh)
 
 Goodnight "journal"
+
+Fuck i forgot to mention that my paper asking to be free for driving car/moped has been approved (school yk) and ive booked my time and i paid for it myself, coated like 5500... But im pretty, thats all end it there, jk im pretty rich tbh. Idk if ill write more today, we will see.

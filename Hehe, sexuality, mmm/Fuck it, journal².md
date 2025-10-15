@@ -88,3 +88,5 @@ https://www.reddit.com/r/CountOnceADay/s/6QelpQeGMw
 
 I played around with my hair a lil just now and took a selfie in the half dark im in. And idk but i kinda look fem with my hair >////<
 Oh and i put those images in the locked folder in the images app, and opening that i also found my old mirror selfies i took at the start of summer break, sorry but i look ugly af. I do not **fit** in short hair whatsoever. I DONT WANT TO CUT IT!!! i gotta tell my mom oml
+# 15 oct
+Dont misunderstand here, i still think about this kind of stuff all day every day, i just feel like its not interesting enough to add here. However since i told my friends i was bi not gay ive started accepting it, i mean its literally what i am. Time to change my passwords! The password for my laptops user account is `imsogay`, the root account password is `imsuchafemboy` like cmon none of that is correct. And to top it off my watch's passxode is 4080, which base26 encoded is "GAY". So ill change that back to what i had a little earlier when i couldnt think of anything, 4249, which is "BI" in hexadecimal. Yeah im a nerd, how'd you know?

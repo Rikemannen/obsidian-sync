@@ -28,3 +28,7 @@ Goodnight "journal"
 Fuck i forgot to mention that my paper asking to be free for driving car/moped has been approved (school yk) and ive booked my time and i paid for it myself, coated like 5500... But im pretty, thats all end it there, jk im pretty rich tbh. Idk if ill write more today, we will see.
 
 Also sucks how my brother wont go to sleep, i thought i showered late... The time is 21:30 and his room is lit and he is playing gta or smth idk.
+
+Ill also add smth about myself, ive noticed that my behavior has changed quite a bit, which i dont mind :P
+Ive gotten like more yappy and nicer? Probably hormones, SPEAKING OF :3
+Why dont i just get hrt?

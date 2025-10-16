@@ -26,3 +26,7 @@ Well we are here now and i didnt bring my laptop to socialize or smth idk what i
 Im not feeling well. We played some hide and seek, and then just scrolled on phones, ate some cake and scrolled more, it was chocolate cake. Lastly we watched the presents being opened. She got some jewellery and something else i didnt see, oh no it was a gift card, Yeah thats that it was!
 
 Anyways she also told us she got 120k from stuff like stocks and stuff. And it just made me sad fsr, i guess im just thinking i wont get it as good. Im just not ok rn. I wanna go to school again. Working with people i dont really care about sucks, school might be annoying at times, but its better. I also really want someone to go trick or treating with on halloween, but will i get that? Im worried.
+
+Oh well atleast i have already showered now, so i can go and cry in bed after just brushing my teeth :)
+
+Oh and i forgot to add, my cousin got a bottle of wine since she turned 18, thats fun ig.

@@ -22,3 +22,7 @@ While playing volleyball i noticed how the others talked to each other and jumpe
  Holy getting to drive a car (slowly) is a fucking gamechanger. But damn if i fail that driving test, thatll be it. I will not be happy. 314.15926535897% certain that ill just give up. 5k just for nothing... 5k for a plastic card telling people that i can drive... Oh right, a moped, not a car? This logic is out the window.
 
 Well we are here now and i didnt bring my laptop to socialize or smth idk what i thought, and my mom asked me if i took it with me so she could work, and now i really regret it. God i hate this, however we are eating tacos so :D
+
+Im not feeling well. We played some hide and seek, and then just scrolled on phones, ate some cake and scrolled more, it was chocolate cake. Lastly we watched the presents being opened. She got some jewellery and something else i didnt see, oh no it was a gift card, Yeah thats that it was!
+
+Anyways she also told us she got 120k from stuff like stocks and stuff. And it just made me sad fsr, i guess im just thinking i wont get it as good. Im just not ok rn. I wanna go to school again. Working with people i dont really care about sucks, school might be annoying at times, but its better. I also really want someone to go trick or treating with on halloween, but will i get that? Im worried.

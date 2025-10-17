@@ -1,0 +1,2 @@
+I dont remember details about my dream, however i do know that i once realized in the dream that i was in a dream by doing a reality check `._.` but that doesnt mean i had a lucid dream. What i remember is that there were like rooms and you had your own, kinda like the game social experiment... God i wanna play that again. I also dreamt that i had bought pride flags for my room, one rainbow yk and the other idk, trans maybe?
+Anyways i also sung happy birthday for my mom 

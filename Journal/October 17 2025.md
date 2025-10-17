@@ -31,3 +31,5 @@ Anyways idk what else to say, i might do more, i did do a sexual orientation tes
 Oh and i also did an iq test just now, i got 121??? "- **Which makes you brighter than 92% of the population.**" like holy shit i am a fucking hivemind.
 
 Oh shit when i bring this up in class to read my journal the image will be there, ill just fix that pretty quick by making a separate file lol.
+
+The time is 23:33 and im still up, ive added some symbols and color to the folders in my home folder, and the folders in some of them, aswell as redownloading all the music files to get them smaller by skipping the video conversion yk and just ripping the mp3 immediately, aswell as keeping the thumbnail. Anyways ima sleep now :P

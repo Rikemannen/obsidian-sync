@@ -3,3 +3,5 @@ I also has one where i just say with my brother playing "test music" from a game
 
 I ate pasta for lunch, ill just say that.
 And today i have recited pi a little, and then i organized my downloads folder, well emptied it really, there is nothing left, and i also started playing liminal industries, i did die however, twice. First world i died in i just started a new one with keep inventory on, and then i died there with no bed... and my base is like 1k blocks away which is hard to get to in the backrooms... I did some nbt hacking and revived myself so i didnt have to travel, but the modpack is a bit much anyways...
+
+Holy shit im so mad rn, i did a "test" on how fast i could "type" by choosing custom on monkeytype and then just typing asdf like 10 times, and then repeating that really fast, and now i have fucked up my graphs... god i hate this so much, i reset my personal bests thinking that would fix it, hell nah, that just reset my bests and didnt touch that, now my graph has a jump up that cant be removed. I guess ill just have to type 200wpm once... or atleast over 188... my pb is 150 btw.

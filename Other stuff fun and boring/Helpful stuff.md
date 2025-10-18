@@ -1,7 +1,16 @@
 # yt-dlp
-ytdlp mp3 download with thumbnail, links from links.txt, no playlist, just title without id
+Download mp3's of links in links.txt along with their thumbnail, ignore playlists. You can set a full path in `-o` and `-a`
 ```bash
 yt-dlp -x --audio-format mp3 --embed-thumbnail --hls-prefer-ffmpeg --no-playlist -o "%(title)s.%(ext)s" -a "./links.txt"
+```
+Create a list of urls in a playlist and save to links.txt
+```bash
+yt-dlp --flat-playlist -J "PLAYLIST_URL" | python -c "import sys, json; data=json.load(sys.stdin); print('\n'.join('https://www.youtube.com/  
+watch?v='+e['url'] for e in data['entries']))" > links.txt
+```
+Download all links except for those already downloaded according to downloaded.txt, along with settings from first command.
+```bash
+yt-dlp -x --audio-format mp3 --embed-thumbnail --hls-prefer-ffmpeg --no-playlist -o "%(title)s.%(ext)s" -a "./links.txt" --download-archive "downloaded.txt"
 ```
 # Conversion
 ## Imagery

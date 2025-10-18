@@ -9,3 +9,5 @@ Holy shit im so mad rn, i did a "test" on how fast i could "type" by choosing cu
 Holy shit i added all songs that ive saved in the background on my phone to a yt playlist and downloaded it, and some songs are just BANGERS. Like holy shit, in fact so good that i have now created [[Karaoke Song List]].
 
 Oh and why didnt i mention, i also did a "short" typing test, i did laptop keyboard + touch typing, i got 45 wpm! Oh sorry the test was 30 min :P Next one is 1 hour, i will probably someday.
+
+Oh and i liked my 2000th video on yt today, but the 3 earlier ones were better :P (im not gonna say which ones that is)

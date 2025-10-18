@@ -1,2 +1,5 @@
 I was at some competiimtion course where you did different things to get points, the things were weird such as pressing. A lithium battery... I also got to be with like a family there.
 I also has one where i just say with my brother playing "test music" from a game. I also remember laying in a couch with someone Esping the same thing in one in front of me.
+
+I ate pasta for lunch, ill just say that.
+And today i have recited pi a little, and then i organized my downloads folder, well emptied it really, there is nothing left, and i also started playing liminal industries, i did die however, twice. First world i died in i just started a new one with keep inventory on, and then i died there with no bed... and my base is like 1k blocks away which is hard to get to in the backrooms... I did some nbt hacking and revived myself so i didnt have to travel, but the modpack is a bit much anyways...

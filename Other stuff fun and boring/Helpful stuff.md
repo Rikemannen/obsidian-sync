@@ -1,7 +1,7 @@
 # yt-dlp
 Download mp3's of links in links.txt along with their thumbnail, ignore playlists. You can set a full path in `-o` and `-a`
 ```bash
-yt-dlp -x --audio-format mp3 --embed-thumbnail --hls-prefer-ffmpeg --no-playlist -o "%(title)s.%(ext)s" -a "./links.txt"
+yt-dlp -x --audio-format mp3 --embed-thumbnail --hls-prefer-ffmpeg --no-playlist -o "~/Music/%(uploader)s - %(title)s.%(ext)s" -a "./links.txt"
 ```
 Create a list of urls in a playlist and save to links.txt
 ```bash
@@ -10,7 +10,11 @@ watch?v='+e['url'] for e in data['entries']))" > links.txt
 ```
 Download all links except for those already downloaded according to downloaded.txt, along with settings from first command.
 ```bash
-yt-dlp -x --audio-format mp3 --embed-thumbnail --hls-prefer-ffmpeg --no-playlist -o "%(title)s.%(ext)s" -a "./links.txt" --download-archive "downloaded.txt"
+yt-dlp -x --audio-format mp3 --embed-thumbnail --hls-prefer-ffmpeg --no-playlist -o "~/Music/%(uploader)s - %(title)s.%(ext)s" -a "./links.txt" --download-archive "downloaded.txt"
+```
+Wanna download a playlist? Use this :)
+```bash
+yt-dlp -x --audio-format mp3 --embed-thumbnail --hls-prefer-ffmpeg -o "~/Music/%(uploader)s - %(title)s.%(ext)s" --download-archive "~/Music/existing.txt" "PLAYLIST_URL"
 ```
 # Conversion
 ## Imagery

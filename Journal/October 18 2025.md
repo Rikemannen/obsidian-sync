@@ -7,3 +7,5 @@ And today i have recited pi a little, and then i organized my downloads folder, 
 Holy shit im so mad rn, i did a "test" on how fast i could "type" by choosing custom on monkeytype and then just typing asdf like 10 times, and then repeating that really fast, and now i have fucked up my graphs... god i hate this so much, i reset my personal bests thinking that would fix it, hell nah, that just reset my bests and didnt touch that, now my graph has a jump up that cant be removed. I guess ill just have to type 200wpm once... or atleast over 188... my pb is 150 btw.
 
 Holy shit i added all songs that ive saved in the background on my phone to a yt playlist and downloaded it, and some songs are just BANGERS. Like holy shit, in fact so good that i have now created [[Karaoke Song List]].
+
+Oh and why didnt i mention, i also did a "short" typing test, i did laptop keyboard + touch typing, i got 45 wpm! Oh sorry the test was 30 min :P Next one is 1 hour, i will probably someday.

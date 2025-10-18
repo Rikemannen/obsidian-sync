@@ -1,0 +1,2 @@
+I was at some competiimtion course where you did different things to get points, the things were weird such as pressing. A lithium battery... I also got to be with like a family there.
+I also has one where i just say with my brother playing "test music" from a game. I also remember laying in a couch with someone Esping the same thing in one in front of me.

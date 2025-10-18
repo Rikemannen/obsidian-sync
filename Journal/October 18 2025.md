@@ -11,3 +11,12 @@ Holy shit i added all songs that ive saved in the background on my phone to a yt
 Oh and why didnt i mention, i also did a "short" typing test, i did laptop keyboard + touch typing, i got 45 wpm! Oh sorry the test was 30 min :P Next one is 1 hour, i will probably someday.
 
 Oh and i liked my 2000th video on yt today, but the 3 earlier ones were better :P (im not gonna say which ones that is)
+
+For halloween idk what to do, i asked my dad if we had a reflective green/yellow jacket thing and he said no, my idea was that, some working pants or whatever and a pylone on ma head :P
+Im still doing the pylone and i thought about getting arm warmers and thigh highs in orange or smth, but angypaws's ones are sold out :( well what did i expect lol.
+THE PYLONE IS STILL ACTIVE THO! I will be wearing a pylone.
+
+I haven't mentioned but im looking forward to school like crazy, BUT ITS ONLY SATURDAY NOO. Yeah it sucks :/
+I also wanna tell everyone that i now know 300 digits of pi, here they are btw:
+3.14159265358979323846264338327950288419716939937510582097494459230781640628620899862803482534211706798214808651328230664709384460955058223172535940812848111745028410270193852110555964462294895493038196442881097566593344612847564823378678316527120190914564856692346034861045432664821339360726024914127
+Im a little uncertain about some parts but i do know them :D
